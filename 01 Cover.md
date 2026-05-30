@@ -1,0 +1,15 @@
+# Cover
+
+![Elon Musk, by Walter Isaacson.](../images/9781982181307.jpg)
+
+[*OceanofPDF.com*](https://oceanofpdf.com)
+
+Thank you for downloading this Simon & Schuster ebook.
+
+Get a FREE ebook when you join our mailing list. Plus, get updates on new releases, deals, recommended reads, and more from Simon & Schuster. Click below to sign up and see terms and conditions.
+
+[CLICK HERE TO SIGN UP](https://www.simonandschuster.com/ebook-signup/front/9781982181307 "Simon & Schuster Mailing List Sign-up Link")
+
+Already a subscriber? Provide your email again so we can register this ebook and send you more of what you like to read. You will continue to receive exclusive offers in your inbox.
+
+[*OceanofPDF.com*](https://oceanofpdf.com)
