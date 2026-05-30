@@ -6,7 +6,6 @@
 
 With Franz von Holzhausen discussing Cybertruck design, 2018
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Steel
 
@@ -58,4 +57,3 @@ Overall, the presentation was not a great success. Tesla stock dropped 6 percent
 
 Afterward, he took Grimes for a spin in the prototype to Nobu restaurant, where the valet parkers just stared at it without touching. On the way out, pursued by paparazzi, he drove over a pylon in the parking lot with a “No Left Turn” sign and turned left.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

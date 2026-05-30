@@ -6,7 +6,6 @@
 
 Examining a battery pack with Omead Afshar (*far left*)
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Are you bipolar?
 
@@ -88,4 +87,3 @@ By April 2018, the Nevada factory was working better. The weather had warmed up 
 
 In the Jupiter conference room in Fremont in 2008, watching a launch and the Tesla production numbers
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

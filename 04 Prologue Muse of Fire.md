@@ -4,7 +4,6 @@
 
 ![Image](images/f0001-01.jpg)
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## The playground
 
@@ -64,4 +63,3 @@ It was a wistful comment, not a New Year’s resolution. Even as he made the ple
 
 Over the years, whenever he was in a dark place or felt threatened, it took him back to the horrors of being bullied on the playground. Now he had the chance to own the playground.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

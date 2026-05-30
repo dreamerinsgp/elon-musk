@@ -14,7 +14,6 @@ Ross Nordeen studying Twitter’s software architecture
 
 James and Andrew Musk
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## James, Andrew, and Ross
 
@@ -110,4 +109,3 @@ Musk reluctantly agreed to delay the mass firings until November 3. They were an
 
 And that was just round one in what would be a three-round bloodbath.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

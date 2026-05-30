@@ -6,7 +6,6 @@
 
 JB Straubel, with his scar; Martin Eberhard and Marc Tarpenning
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## JB Straubel
 
@@ -72,4 +71,3 @@ Straubel, who had never heard of Eberhard or his fledgling Tesla enterprise, rod
 
 The pieces thus came together for what would become the world’s most valuable and transformative automobile company: Eberhard as CEO, Tarpenning as president, Straubel as chief technology officer, Wright as chief operating officer, and Musk as the chair of the board and primary funder. Years later, after many bitter disputes and a lawsuit, they agreed that all five of them would be called cofounders.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

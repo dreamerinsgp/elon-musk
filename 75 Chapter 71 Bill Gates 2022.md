@@ -6,7 +6,6 @@
 
 With Gates at the Boao Forum for Asia in Qionghai, China, 2015
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## The visit
 
@@ -72,4 +71,3 @@ Although the concept appealed to Musk, he was not ready to commit. “I’ve got
 
 Yes, he did. That day—April 6, 2022—he was preparing for the opening of Giga Texas, and he had spent the morning doing an intense inspection walk on the Model Y assembly line and approving the details of the Giga Rodeo party being planned. It was also the day of his conference call with White House officials on trade, China, and battery subsidies. And then there was the issue that was taking up most of his mind-space that day: an offer he had just accepted, but was having second thoughts about, to join the board of a company whose stock he had been secretly accumulating since January.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

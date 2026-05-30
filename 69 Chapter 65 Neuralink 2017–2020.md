@@ -6,7 +6,6 @@
 
 A monkey playing *Pong* using only his brainwaves
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Human-computer interfaces
 
@@ -48,4 +47,3 @@ One problem they faced was caused by the requirement that the chip be very small
 
 When they had the new device ready, they implanted it in one of the macaque monkeys, named Pager, housed at the lab. He was taught to play the video game *Pong* by rewarding him with a fruit smoothie when he scored well. The Neuralink device recorded which neurons were firing each time he moved the joystick a certain way. Then the joystick was deactivated, and the signals from the monkey’s brain controlled the game. It was a major step toward Musk’s goal of creating a direct connection between a brain and a machine. Neuralink uploaded a video of it to YouTube, and within a year it was viewed six million times.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

@@ -6,7 +6,6 @@
 
 Tom Mueller
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Tom Mueller
 
@@ -46,4 +45,3 @@ Musk and the other young engineers would work late into the night and then fire 
 
 Musk named the rocket they were building Falcon 1, after the spacecraft from *Star Wars*. He left it to Mueller to name its engines. He wanted cool names, not just letters and numbers. An employee at one of the contractors was a falconer, and she listed the different species of that bird. Mueller picked “Merlin” for the engines on the first stage and “Kestrel” for those on the second stage.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

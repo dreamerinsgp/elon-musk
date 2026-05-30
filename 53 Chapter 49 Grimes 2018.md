@@ -6,7 +6,6 @@
 
 Claire Boucher, known as Grimes, dressed for a performance; with Musk at the Metropolitan Museum gala
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## EM+CB
 
@@ -60,4 +59,3 @@ Sometimes one of the Elon versions will seem not to remember what another one ha
 
 During the 2018 emotional turmoil at Tesla, she tried to coax him to relax. “Everything doesn’t need to suck,” she told him one night. “You don’t need to feel stoked about everything all the time.” But she also understood, in ways that others did not, that his restlessness was a driver of his success. So, too, was his demon mode, though that took her a little longer to appreciate. “Demon mode causes a lot of chaos,” she says, “but it also gets shit done.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

@@ -4,7 +4,6 @@
 
 ![Image](images/f0035-01.jpg)
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Jekyll and Hyde
 
@@ -46,4 +45,3 @@ As usual, Errol has his own version of the story, in which he was the action her
 
 His father’s account, Elon says, was just another of his elaborate fantasies casting him as the hero. In this case, it was provably false. By Republic Day 1989, Elon had already gotten a Canadian passport and purchased his airline ticket.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

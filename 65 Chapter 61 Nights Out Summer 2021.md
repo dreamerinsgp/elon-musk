@@ -6,7 +6,6 @@
 
 With Maye onstage at *Saturday Night Live* and with Grimes at a party
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Saturday Night Live
 
@@ -74,4 +73,3 @@ After the Gala, he and Grimes hosted a party at the hot club Zero Bond in Manhat
 
 Having reached the pinnacle of celebrity in the summer of 2021, Musk found it exciting but awkward. The next day they went to an art installation Grimes had done as part of a trendy audiovisual exhibition in Brooklyn, featuring an animated video in which she played a war nymph navigating a dystopian future. From there they went directly to Musk’s jet and flew to Cape Canaveral for SpaceX’s attempt to be the first private company to launch civilians into space. Reality could trump fantasy.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

@@ -10,7 +10,6 @@ Matt Taibbi
 
 Bari Weiss
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Matt Taibbi
 
@@ -92,4 +91,3 @@ But beginning in the 1990s and accelerating after 9/11, established journalists 
 
 The Twitter Files brought some transparency to how Twitter had handled content moderation, but they also showed how difficult the task can be. The FBI, for example, flagged Twitter that some accounts tweeting negatively about vaccines and Ukraine were being secretly run by Russia’s intelligence directorate. If that was indeed the case, was it valid for Twitter to suppress these accounts? As Taibbi himself wrote, “This is a difficult speech dilemma.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

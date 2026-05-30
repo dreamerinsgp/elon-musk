@@ -10,7 +10,6 @@ Jared Isaacman
 
 Musk with Hans Koenigsmann
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 The July 2021 flights of Branson and Bezos raised a question: Would Musk follow suit and become the third billionaire to launch himself into space? Although he had a strong appetite for the limelight and for risky adventures, he never considered it. He insisted that his mission was about humanity, not himself, which sounded grandiose but contained a kernel of truth. The idea that rockets were billionaire-boys’ toys threatened to give citizen space travel a bad odor.
 
@@ -68,4 +67,3 @@ The Inspiration4 mission, launched by a private company for private citizens, he
 
 As Musk processed the significance of the launch, he became philosophical in his *Hitchhiker’s Guide* fashion, ruminating on human endeavor. “Building mass-market electric cars was inevitable,” he said. “It would have happened without me. But becoming a space-faring civilization is not inevitable.” Fifty years earlier, America had sent men to the moon. But since then, there had been no progress. Just the reverse. The Space Shuttle could only do low-Earth orbit, and after it was retired, America couldn’t even do that anymore. “Technology does not automatically progress,” Musk said. “This flight was a great example of how progress requires human agency.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

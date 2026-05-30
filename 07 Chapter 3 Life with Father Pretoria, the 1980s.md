@@ -14,7 +14,6 @@ Kimbal and Elon with Peter and Russ Rive
 
 The lodge in the Timbavati Game Reserve
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## The move
 
@@ -72,4 +71,3 @@ One book that he found in his father’s office described great inventions that 
 
 Russ Rive, Elon, Kimbal, and Peter Rive
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

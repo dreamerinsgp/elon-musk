@@ -6,7 +6,6 @@
 
 Inspecting the Raptor engines under a Starship booster
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Showing off Starship
 
@@ -96,4 +95,3 @@ Shortly after midnight, the deadline Musk had set, a truck with the upright boos
 
 All was going well until a line broke loose and hydraulic fluid, a mix of oil and water, started spraying over the area. Everyone got doused, including Grimes and X. She was initially freaked out that it was some toxic chemical, but Musk told her not to worry. “I love the smell of hydraulic fluid in the morning,” he said, echoing a line from *Apocalypse Now*. X likewise was unfazed, even when Grimes rushed him back to the house to bathe. “I feel like he’s developing a higher than average tolerance for danger,” Musk said. Showing only the tiniest bit of self-awareness, he added, “His tolerance for danger is almost problematic, honestly.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

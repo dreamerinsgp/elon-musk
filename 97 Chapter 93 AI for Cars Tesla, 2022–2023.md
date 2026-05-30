@@ -6,7 +6,6 @@
 
 Dhaval Shroff and his Tesla desk
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Cars that learn from humans
 
@@ -56,4 +55,3 @@ The ability to collect and analyze vast flows of real-time data would be crucial
 
 Listening in on the meeting was a superstar AI engineer. Musk had just that week hired him for a secret new project he was about to launch.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

@@ -6,7 +6,6 @@
 
 Entering Twitter headquarters and visiting the coffee bar on the tenth floor
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Clash of cultures
 
@@ -50,4 +49,3 @@ Late in the afternoon, Agrawal quietly walked into the second-floor lounge area 
 
 “My brain is full,” Musk answered. “It will take a night of sleep to turn the data into something.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

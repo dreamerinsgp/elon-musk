@@ -6,7 +6,6 @@
 
 Hans Koenigsmann with a Falcon 1
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 After two failed launches from the remote atoll of Kwajalein, the third attempt of the Falcon 1 rocket would make or break SpaceX, or at least that’s what everyone, including Musk, thought. He told his team he had money for only three tries. “I believed that if we couldn’t do it in three,” he says, “we deserved to die.”
 
@@ -30,4 +29,3 @@ A jolt of optimism spread through headquarters. “I think most of us would have
 
 Carl Hoffman, a *Wired* reporter who had watched the failure of the second launch with Musk, reached him to ask how he maintained his optimism. “Optimism, pessimism, fuck that,” Musk answered. “We’re going to make it happen. As God is my bloody witness, I’m hell-bent on making it work.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

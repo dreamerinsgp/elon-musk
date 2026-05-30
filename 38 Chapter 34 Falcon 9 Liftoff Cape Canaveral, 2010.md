@@ -6,7 +6,6 @@
 
 Marc Juncosa, center, leading a toast to the Falcon 9 liftoff
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Into orbit…
 
@@ -40,4 +39,3 @@ Boom, pop. It worked. The valve burped open. Dragon docked with the Space Statio
 
 That paved the way for SpaceX’s next great challenge, one even grander and riskier. Prodded by Garver, the Obama administration decided that, once the Space Shuttle was retired, the U.S. would rely on private companies, most notably SpaceX, to launch not only cargo but humans into orbit. Musk was prepared for that. He had already told the SpaceX engineers to build into the Dragon capsule an element that was not necessary for the transport of cargo: a window.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

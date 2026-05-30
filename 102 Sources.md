@@ -149,4 +149,3 @@
 11. Ashlee Vance, *Elon Musk* (Ecco, 2015)
 12. Ashlee Vance, *When the Heavens Went on Sale* (Ecco, 2023)
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

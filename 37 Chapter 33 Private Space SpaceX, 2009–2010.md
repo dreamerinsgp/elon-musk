@@ -6,7 +6,6 @@
 
 At Cape Canaveral with President Obama, 2010
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Falcon 9, Dragon, and Pad 40
 
@@ -52,4 +51,3 @@ The president’s team had decided that he would go to one of the launchpads aft
 
 The televised image was priceless for both Obama and Musk: the young president, who was born the year that John Kennedy pledged America would send a man to the moon, walking alongside the risk-taking entrepreneur, chatting casually as they circled the gleaming Falcon 9. Musk liked Obama. “I thought he was a moderate but also someone willing to force change,” he says. He got the impression that Obama was trying to size him up. “I think he wanted to get a sense if I was dependable or a little nuts.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

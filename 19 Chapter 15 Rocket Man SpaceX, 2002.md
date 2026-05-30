@@ -6,7 +6,6 @@
 
 With Adeo Ressi at a rocket facility and a dinner with Russians in Moscow
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Russia
 
@@ -54,4 +53,3 @@ Musk tried to recruit the two engineers who had accompanied him to Moscow. But M
 
 Musk incorporated Space Exploration Technologies in May 2002. At first he called the company by its initials, SET. A few months later, he highlighted his favorite letter by moving to a more memorable moniker, SpaceX. Its goal, he said in an early presentation, was to launch its first rocket by September 2003 and to send an unmanned mission to Mars by 2010. Thus continued the tradition he had established at PayPal: setting unrealistic timelines that transformed his wild notions from being completely insane to being merely very late.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

@@ -14,7 +14,6 @@ With Talulah
 
 With Navaid Farooq
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 When Talulah Riley married Musk in 2010, she moved to California and pretty much gave up her acting career. An only child, she had dreamed of having many children, and in the pictures she drew there were always twin blond boys. “When I met Elon, he had five children and the oldest were these gorgeous little blond-haired twins that felt like they jumped up out of my imagination.” But cautious about their relationship, she decided not to have kids of her own with him.
 
@@ -40,4 +39,3 @@ A few weeks after the Tarrytown party, in July 2013, he and Talulah decided to r
 
 After some hesitations and reconciliations, she made the final decision on her thirtieth birthday, in September 2015. She finished filming the HBO series *Westworld* in Los Angeles, then moved back to England for good. But she made him a promise. “You’re my Mr. Rochester,” she said, referring to the brooding husband in Charlotte Brontë’s novel *Jane Eyre*. “And if Thornfield Hall burns down and you are blind, I’ll come to you and take care of you.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

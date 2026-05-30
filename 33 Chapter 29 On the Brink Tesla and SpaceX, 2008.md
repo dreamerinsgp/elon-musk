@@ -6,7 +6,6 @@
 
 In the SpaceX control room
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 On February 1, 2008, an email went out to employees at Tesla headquarters. “P1 arriving now!” it announced. “P1” was the codename for the first Roadster to make it through the production process. Musk spoke briefly and then took the Roadster on a victory lap around Palo Alto.
 
@@ -32,4 +31,3 @@ There was one decision that everyone around Musk thought he would have to make. 
 
 The more people pressed him to choose, the more he resisted. “For me emotionally, this was like, you got two kids and you’re running out of food,” he says. “You can give half to each kid, in which case they might both die, or give all the food to one kid and increase the chance that at least one kid survives. I couldn’t bring myself to decide that one was going to die, so I decided I had to give my all to save both.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

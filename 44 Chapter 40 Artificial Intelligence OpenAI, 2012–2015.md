@@ -6,7 +6,6 @@
 
 With Sam Altman
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 Peter Thiel, the PayPal cofounder who had invested in SpaceX, holds a conference each year with the leaders of companies financed by his Founders Fund. At the 2012 gathering, Musk met Demis Hassabis, a neuroscientist, video-game designer, and artificial intelligence researcher with a courteous manner that conceals a competitive mind. A chess prodigy at age four, he became the five-time champion of an international Mind Sports Olympiad that includes competition in chess, poker, *Mastermind*, and backgammon.
 
@@ -52,4 +51,3 @@ Musk’s determination to develop artificial intelligence capabilities at his ow
 
 So Musk decided to forge ahead with building a rival AI team to work on Tesla Autopilot. Even as he was struggling with the production hell surges in Nevada and Fremont, he recruited Andrej Karpathy, a specialist in deep learning and computer vision, away from OpenAI. “We realized that Tesla was going to become an AI company and would be competing for the same talent as OpenAI,” Altman says. “It pissed some of our team off, but I fully understood what was happening.” Altman would turn the tables in 2023 by hiring Karpathy back after he became exhausted working for Musk.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

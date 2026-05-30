@@ -10,7 +10,6 @@ On the Joe Rogan show *(top)*; Kimbal *(bottom)*
 
 On the Joe Rogan show *(top)*; Kimbal *(bottom)*
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## “Are you OK?”
 
@@ -130,4 +129,3 @@ When he invited Straubel and Baglino to the stage, there were loud cheers. Among
 
 During an earnings call a few weeks later, Musk casually dropped the news that Straubel was departing. But Musk’s respect for him endured. In 2023, he would invite Straubel to join the board of Tesla.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

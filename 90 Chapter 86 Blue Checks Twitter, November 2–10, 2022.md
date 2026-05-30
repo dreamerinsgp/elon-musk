@@ -10,7 +10,6 @@ A presentation in the conference room
 
 James Musk, Dhaval Shroff, and Andrew Musk assessing engineers
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Thermonuclear
 
@@ -116,4 +115,3 @@ Von Holzhausen tried to change the subject back to the very futuristic Robotaxi 
 
 Afterward, he was interviewed by video for a business summit in Indonesia. The moderator asked what advice he would give to someone who wanted to be the next Elon Musk. “I’d be careful what you wish for,” he replied. “I’m not sure how many people would actually like to be me. The amount that I torture myself is next level, frankly.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

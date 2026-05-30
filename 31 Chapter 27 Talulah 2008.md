@@ -6,7 +6,6 @@
 
 With Talulah Riley in Hyde Park, London
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 In July 2008, after breaking up with Justine, Musk was scheduled to give a speech to the Royal Aeronautical Society in London. It was not a propitious time to be talking about rockets. Two of his had blown up, and the third attempt was supposed to launch in three weeks. Tesla’s kludgy production chain was sucking up cash, and the early signs of a global economic meltdown were making new financing difficult. Plus his divorce wranglings with Justine threatened his ability to control his Tesla stock. Nevertheless, he went.
 
@@ -26,4 +25,3 @@ Rather than moving in with Musk—which she believed was improper—she took a r
 
 When her parents flew from London to meet Musk a few weeks later, he asked her father if he could marry her. “I know my daughter very well, and I trust her judgment, so off you go,” he replied. Maye flew to Los Angeles and, for once, approved of one of her son’s partners. “She was an absolute delight, funny and loving and successful,” she says. “And her parents were so nice, a really good English couple.” But on the advice of his brother Kimbal, he decided, and Talulah concurred, that they should wait a couple of years before getting married.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

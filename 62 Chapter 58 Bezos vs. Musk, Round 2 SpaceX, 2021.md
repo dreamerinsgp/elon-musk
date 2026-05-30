@@ -10,7 +10,6 @@ Jeff Bezos right after his trip
 
 Richard Branson right before his
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Goading each other
 
@@ -56,4 +55,3 @@ Musk offered a pinch of faint praise to Bezos and Branson. “I thought it was c
 
 Musk was cursed with a conspiratorial mindset, which made him believe that much of his negative press was due to the hidden agendas or corrupt interests of the people who own the news organizations. This was particularly pronounced when Bezos bought the *Washington Post*. When the paper contacted Musk about a story it was reporting in 2021, he sent an email that simply said, “Give my regards to your puppet master.” In fact, Bezos has always been admirably hands-off when it came to news coverage in the *Post,* and its respected space reporter Christian Davenport regularly published stories that chronicled Musk’s successes, including one about his rivalry with Bezos. “For now, Musk is well ahead in virtually every area,” Davenport wrote. “SpaceX has dispatched three teams of astronauts to the International Space Station and on Tuesday is scheduled to launch a crew of civilian astronauts on a three-day trip orbiting Earth. Blue Origin has launched a single suborbital mission to space that lasted just over 10 minutes.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

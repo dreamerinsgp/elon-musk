@@ -6,7 +6,6 @@
 
 Musk’s living room and backyard in Boca Chica; Bill Riley and Mark Juncosa
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Big F Rocket
 
@@ -66,4 +65,3 @@ The backyard has scrubby grass and a couple of palm trees that, despite being pa
 
 Humble does not begin to describe its status as the primary residence of a billionaire. But Musk found it to be a haven. After long meetings at Starbase or tense inspection tours of the rocket assembly lines, he would drive himself back there and his body would relax as he puttered around the house, whistling like a suburban dad.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

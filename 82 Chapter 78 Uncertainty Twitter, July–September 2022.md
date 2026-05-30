@@ -10,7 +10,6 @@ Ari Emanuel hosing Musk down in Mykonos
 
 Alex Spiro
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## The terminator
 
@@ -78,4 +77,3 @@ Birchall called it “the most insulting, demeaning, insane message.” Musk was
 
 There was another thing that Emanuel did not understand. Musk wanted to run Twitter himself, just as he was doing with Tesla, SpaceX, The Boring Company, and Neuralink.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

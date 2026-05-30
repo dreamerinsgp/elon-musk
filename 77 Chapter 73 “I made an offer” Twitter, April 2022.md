@@ -122,4 +122,3 @@ But there were two other reasons, I think, that Musk wanted to own Twitter. The 
 
 And second, I believe there was a psychological, personal yearning. Twitter was the ultimate playground. As a kid, he was beaten and bullied on the playground, never having been endowed with the emotional dexterity needed to thrive on that rugged terrain. It instilled a deep pain and sometimes caused him to react to slights far too emotionally, but it also is what girded him to be able to face the world and fight every battle fiercely. When he felt dinged up, cornered, bullied, either online or in person, it took him back to a place that was super painful, where he was dissed by his father and bullied by his classmates. But now he could own the playground.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

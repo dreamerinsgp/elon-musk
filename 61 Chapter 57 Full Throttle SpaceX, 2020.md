@@ -6,7 +6,6 @@
 
 With Kiko Dontchev, and at the Cape Canaveral launch tower
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Civilians into orbit
 
@@ -62,4 +61,3 @@ That was not the attitude that Musk valued. “He didn’t see it that way, and 
 
 Koenigsmann had been at SpaceX from the very rough early days, and Musk did not want to fire him on the spot. But he took away his oversight duties and eased him out in a few months. “You did an awesome job over many years, but eventually everybody’s time comes to retire,” Musk told him in an email. “Yours is now.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

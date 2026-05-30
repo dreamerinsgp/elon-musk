@@ -6,7 +6,6 @@
 
 Lyndon and Peter Rive
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Burning Man
 
@@ -62,4 +61,3 @@ Inside each of the garages was an upgraded version of Tesla’s Powerwall along 
 
 It was a lofty vision, but it came at a personal cost. Within a year, both Peter and Lyndon Rive would leave the company.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

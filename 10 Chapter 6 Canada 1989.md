@@ -6,7 +6,6 @@
 
 At his cousin’s barn in Saskatchewan and in his bedroom in Toronto
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Immigrant
 
@@ -38,4 +37,3 @@ He had no friends or social life in Toronto, and he spent most of his time readi
 
 Dancing with Kimbal in Toronto
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

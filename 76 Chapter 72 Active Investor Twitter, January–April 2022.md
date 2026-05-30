@@ -10,7 +10,6 @@ Parag Agrawal
 
 Jack Dorsey
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Before the storm
 
@@ -119,4 +118,3 @@ Musk came onstage to a blaring Dr. Dre song driving the black Tesla Roadster tha
 
 The opening of Giga Texas should have been a moment of triumph. Musk had led the way into the era of electric vehicles, and now he was showing that manufacturing could thrive in America. But the buzz at the opening celebration and the afterparty was not about miracles of manufacturing. Especially among Musk’s close friends and family—Kimbal, Antonio, Luke, and even Maye—the conversation was about Twitter. Why was he throwing himself into that snake-infested swamp? Would this be his Wilderness Campaign? Should we try to talk him out of it?
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

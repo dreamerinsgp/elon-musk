@@ -1800,4 +1800,3 @@
   + Sorkin as CEO, [63](ch10_sub01.xhtml#page_63), [65](ch10_sub01.xhtml#page_65)
 * Zubrin, Robert, [92](ch14_sub01.xhtml#page_92)
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

@@ -6,7 +6,6 @@
 
 A slide showing the goal and Jeremy Barenholtz
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Cures
 
@@ -36,4 +35,3 @@ Musk wanted the presentation to show off both his ultimate ambitions and his mor
 
 Then he unveiled the new shorter-term missions that he had set for Neuralink. “The first is restoring vision,” he said. “Even if someone was born blind, we believe we can allow them to see.” Next, he talked about paralysis. “As miraculous as it may sound, we’re confident that it is possible to restore full-body functionality to someone who has a severed spinal cord.” The presentation lasted three hours. He stuck around until 1 a.m., partying with his engineers. It was, he later said, a welcome break from the “dumpster fire” at Twitter.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

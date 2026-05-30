@@ -6,7 +6,6 @@
 
 Celebrating the sale of Zip2 with Maye and Kimbal; taking delivery of the McLaren with Justine
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Map quests
 
@@ -68,4 +67,3 @@ The writer Michael Gross was in Silicon Valley reporting a piece for Tina Brown�
 
 Celebrity was enticing for a kid who had grown up with no friends. “I’d like to be on the cover of *Rolling Stone*,” he told CNN. But he would end up having a conflicted relationship with wealth. “I could go and buy one of the islands of the Bahamas and turn it into my personal fiefdom, but I am much more interested in trying to build and create a new company,” he said. “I haven’t spent all my winnings. I’m going to put almost all of it back to a new game.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

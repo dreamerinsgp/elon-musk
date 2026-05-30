@@ -6,7 +6,6 @@
 
 Justine
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 After the death of their son Nevada, Justine and Elon decided to get pregnant again as soon as possible. They went to an in vitro fertilization clinic, and in 2004 she gave birth to twins, Griffin and Xavier. Two years later, again through IVF, they had triplets: Kai, Saxon, and Damian.
 
@@ -38,4 +37,3 @@ In the spring of 2008, amid the exploding rockets and turmoil at Tesla, Justine 
 
 Elon agreed to enter counseling, but after a month and three sessions, the marriage broke up. Justine’s version is that Elon gave her an ultimatum: either she accept the marriage for what it was or he would file for divorce. His version is that she had repeatedly said she wanted to get divorced, and he finally said, “I’m willing to stay married, but you have to promise not to be mean to me all the time.” When Justine made it clear that the current situation was unacceptable to her, he filed for divorce. “I felt numb,” she recalls, “but strangely relieved.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

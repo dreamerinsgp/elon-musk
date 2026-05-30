@@ -6,7 +6,6 @@
 
 With the Prime Minister of Thailand inspecting the mini-sub; preparing to enter the cave with the trapped boys
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Pedo guy
 
@@ -84,4 +83,3 @@ He was partially vindicated in 2023 when he won a case against a group of shareh
 
 1. [I](#footnote-000-backlink). The defamation suit, which included the *BuzzFeed* emails, went to trial in Los Angeles in 2019. Musk in his testimony apologized and said he did not believe the cave explorer was a pedophile. The jury found Musk not liable.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

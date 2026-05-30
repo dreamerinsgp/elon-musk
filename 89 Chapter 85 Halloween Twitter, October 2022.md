@@ -6,7 +6,6 @@
 
 Maye dressed for Halloween 2022 and watching one of her son’s presentations
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## New York visit
 
@@ -34,4 +33,3 @@ Musk did not get back to Maye’s apartment from his advertising meetings until 
 
 The next morning, he got up early so that he could watch with his mother and son the livestream of a Falcon Heavy liftoff, the first time in three years that SpaceX’s twenty-seven-engine rocket had been launched. Then he flew to Washington for a ceremony marking a change of top generals at the U.S. Space Command. Despite the tensions he had with the Biden administration, Musk was still warmly embraced by the Pentagon, especially because SpaceX was the only American entity capable of sending major military satellites and crews into orbit. During the ceremony, he was singled out by General Mark Milley, the Chairman of the Joint Chiefs of Staff. “What he symbolizes,” Milley said, “is the combination of the civil and military cooperation and teamwork that makes the United States the most powerful country in space.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

@@ -14,7 +14,6 @@ X watching a rocket launch video on Musk’s plane
 
 With Lord Norman Foster in Austin, dreaming of a house
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## All my kids
 
@@ -90,4 +89,3 @@ Birchall, who was with them, Googled images of futuristic buildings, while Foste
 
 I later commented that it did not actually seem like a family home. Musk agreed. “It’s more an art project than a house,” he explained. He put off building it.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

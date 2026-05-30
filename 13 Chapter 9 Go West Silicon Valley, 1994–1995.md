@@ -6,7 +6,6 @@
 
 July 1994
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Summer intern
 
@@ -50,4 +49,3 @@ He actually hedged his bets. He officially enrolled at Stanford and then immedia
 
 May 1995
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

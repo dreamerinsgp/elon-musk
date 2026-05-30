@@ -10,7 +10,6 @@ Learning to fly
 
 Adeo Ressi
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Flying
 
@@ -60,4 +59,3 @@ He had the money. The biggest challenge was getting an affordable rocket that co
 
 Cantrell was driving in Utah with the top down on his convertible, “so all I could make out was that some guy named Ian Musk was saying that he was an internet millionaire and needed to talk to me,” he later told *Esquire*. When Cantrell got home and was able to call him back, Musk explained his vision. “I want to change mankind’s outlook on being a multiplanetary species,” he said. “Can we meet this weekend?” Cantrell had been leading a cloak-and-dagger life because of his dealings with Russian authorities, so he wanted to meet in a safe place without guns. He suggested they meet at the Delta Air Lines club at the Salt Lake City airport. Musk brought Ressi, and they came up with a plan to go to Russia to see if they could buy some launch slots or rockets.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

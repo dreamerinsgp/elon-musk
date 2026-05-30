@@ -118,4 +118,3 @@
 * Front Endpaper: Courtesy of SpaceX
 * Back Endpaper: Courtesy of Tesla, Inc.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

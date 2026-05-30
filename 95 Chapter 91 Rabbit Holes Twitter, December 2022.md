@@ -78,4 +78,3 @@ Musk’s erratic tweets further hurt Twitter with advertisers. He asked for a ca
 
 The damage even spilled over to Tesla. Its stock had dropped to $156 a share, down from $340 when he first announced his interest in Twitter. At its meeting in Austin on December 14, the Tesla board, usually very compliant, told Musk that the Twitter controversies were hurting the Tesla brand. Musk pushed back, saying that sales numbers were bad around the world, even where people were not paying attention to the controversies, and it was due mainly to macroeconomic factors. But both Kimbal and board chair Robyn Denholm kept pressing him, saying that his behavior was a factor. “The giant elephant in the room was that he was acting like a fucking idiot,” Kimbal says.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

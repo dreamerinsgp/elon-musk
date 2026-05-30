@@ -6,7 +6,6 @@
 
 With Robin Ren at Penn; with cousin Peter Rive and Kimbal in Boston
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Physics
 
@@ -42,4 +41,3 @@ Although Elon loved the vibe of the parties, he never got fully immersed in them
 
 Ressi later marveled that Musk usually seemed a bit detached. “He enjoyed being around a party but not fully in it. The only thing he binged on was video games.” Despite all of their partying, he understood that Musk was fundamentally alienated and withdrawn, like an observer from a different planet trying to learn the motions of sociability. “I wish Elon knew how to be a little happier,” he says.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

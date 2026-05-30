@@ -80,4 +80,3 @@ He also explained why some limits on hate speech were important. “You want as 
 
 When asked about diversity, equity, and inclusion, Musk pushed back a bit. “I believe in a strict meritocracy,” he said. “Whoever is doing great work, they get more responsibility. And that’s that.” But he also insisted he had not become an ideological conservative. “My political views, I think, are moderate, close to the center.” He did not please most people on the call, but he did avoid causing any explosions.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

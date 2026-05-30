@@ -6,7 +6,6 @@
 
 Omead Afshar
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Austin
 
@@ -40,4 +39,3 @@ The machines inject bursts of molten aluminum into a cold casting mold, which ca
 
 The process reinforced Musk’s appreciation for the toy industry. “They have to produce things very quickly and cheaply without flaws, and manufacture them all by Christmas, or there will be sad faces.” He repeatedly pushed his teams to get ideas from toys, such as robots and Legos. As he walked the floor of the factory, he spoke to a group of machinists about the high-precision molding of Lego pieces. They are accurate and identical to within ten microns, which means any part can easily be replaced by another. Car components needed to be that way. “Precision is not expensive,” he says. “It’s mostly about caring. Do you care to make it precise? Then you can make it precise.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

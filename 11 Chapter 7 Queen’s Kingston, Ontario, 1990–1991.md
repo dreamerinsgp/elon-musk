@@ -6,7 +6,6 @@
 
 With Navaid Farooq at Queen’s and with his new suit
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Industrial relations
 
@@ -50,4 +49,3 @@ Nicholson says that Scotiabank was navigating the Latin American debt situation 
 
 Musk also drew another lesson from his time at Scotiabank: he did not like, nor was he good at, working for other people. It was not in his nature to be deferential or to assume that others might know more than he did.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

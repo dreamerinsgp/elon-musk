@@ -6,7 +6,6 @@
 
 With Robin Ren in Shanghai
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 Robin Ren, the Shanghai-born Physics Olympiad winner who had been Musk’s lab partner at Penn, did not know much about cars. In fact, almost all he knew came from the cross-country road trip that he had taken with Musk when they graduated in 1995. Musk had taught him how to deal with a broken-down BMW and how to drive a stick shift, skills he had not subsequently needed after becoming chief technology officer at Dell Computer’s flash-drive subsidiary. That is why he was surprised by the request Musk made twenty years later when he asked him to lunch in Palo Alto.
 
@@ -28,4 +27,3 @@ Ren flew back to the U.S. to discuss the deal with Musk in February 2018. Unfort
 
 The formal signing ceremony with the Chinese leaders came on July 10, 2018. Musk arrived in Shanghai directly from being waist-deep in water in a Thai cave after delivering the mini-sub he had built to rescue the stranded young soccer players. He changed into a dark suit and stood stiffly in a red-draped banquet hall as they all exchanged toasts. The first Teslas began rolling out of the factory in October 2019. Within two years, China would be making more than half of Tesla’s vehicles.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

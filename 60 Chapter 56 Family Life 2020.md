@@ -6,7 +6,6 @@
 
 With Grimes and Baby X, and with his older children
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## X Æ A-12
 
@@ -72,4 +71,3 @@ Elon declined. “I’ve just got emotions buried under so much layers of concre
 
 In the show, the characters from the original movie were now in their late forties, like Elon and Kimbal, with kids that were the age of the Musk kids. “It hit home to both of us, because it has one super-empathetic person, played by Ralph Macchio, and the other person is the non-empathetic one,” Kimbal says. “They’re both struggling with their own challenges with their father figure and also with how to be father figures to their own children.” The experience was cathartic, even without an Ayahuasca ceremony. “We were like two kids again,” Kimbal says. “It was beautiful, the best time ever. We never thought we’d ever get one of those weeks again in our lives.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

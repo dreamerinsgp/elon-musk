@@ -6,7 +6,6 @@
 
 With Amber Heard, who left a kiss mark on his cheek; with Donald Trump; Errol Musk
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Trump
 
@@ -70,4 +69,3 @@ Just after he heard the news in the summer of 2017, Musk was scheduled to give a
 
 After more than five minutes, Teller went to retrieve him. When Musk returned, he explained to Strauss, “I just broke up with my girlfriend. I was really in love, and it hurt bad.” Later in the interview, he unloaded about his father, but without mentioning the child Errol had just had with Jana. “He was such a terrible human being,” Musk said, starting to cry. “My dad will have a carefully thought-out plan of evil. He will plan evil. Almost every crime you can possibly think of, he has done. Almost every evil thing you could possibly think of, he has done.” In his profile, Strauss noted that Musk would not go into specifics. “There is clearly something Musk wants to share, but he can’t bring himself to utter the words.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

@@ -6,7 +6,6 @@
 
 Hans Koenigsmann and Omelek Island in the Kwajalein Atoll
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Catch-22
 
@@ -48,4 +47,3 @@ How scrappy and non-Boeing-like were the crew on Kwaj? In early 2006, they plann
 
 The capacitors were available in an electronics supply house in Minnesota. An intern in Texas was dispatched there. Meanwhile, Altan removed the power boxes from the rocket on Omelek, jumped on a boat to Kwaj, slept on a concrete slab outside of the airport waiting for the early-morning flight to Honolulu, and made the connection to Los Angeles, where he was picked up by his wife, who drove him to SpaceX headquarters. There he met the intern, who had arrived from Minnesota with the new capacitors. He swapped them into the faulty power boxes and rushed home to change clothes during the two hours it took for the boxes to be tested. Then he and Musk jumped into Musk’s jet for the dash back to Kwaj, taking the intern with them as his reward. Altan hoped to sleep on the plane—he had been awake for most of forty hours—but Musk bombarded him with questions on every detail of the circuitry. A helicopter whisked them from the Kwaj airstrip to Omelek, where Altan put the repaired boxes onto the rocket. They worked. The three-second static fire test was a success, and the first full launch attempt of Falcon 1 was scheduled for a few weeks later.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

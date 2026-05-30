@@ -20,4 +20,3 @@ When the one-mile-long prototype tunnel was almost finished at the end of Decemb
 
 It didn’t change everything. In fact, it became an example of a Musk idea that was overhyped. The Boring Company completed a 1.7-mile tunnel in Las Vegas in 2021 that transported riders in Teslas from the airport and through the convention center, and it began negotiations for projects in other cities. But by 2023, none of them had gotten underway.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

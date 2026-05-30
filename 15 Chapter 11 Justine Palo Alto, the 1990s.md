@@ -10,7 +10,6 @@ Justine, Elon, and Maye
 
 The family, with Errol and Maye second and third from the right
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Romance drama
 
@@ -52,4 +51,3 @@ On the surface, the ceremony by the hotel swimming pool seemed joyous. Justine l
 
 ![Image](images/f0072-01.jpg)
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

@@ -6,7 +6,6 @@
 
 A slide showing the progress being made on autonomous cars
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Delete radar
 
@@ -44,4 +43,3 @@ Lars Moravy, Musk’s head of vehicle engineering, put a Danish-born engineer na
 
 “It’s a much more sophisticated radar than general automotive radar,” Musk says. “It’s what you would see in a weapons system. It creates a picture of what’s going on rather than just getting a ping back.” Did he really plan to put it in Tesla’s high-end cars? “It’s worth experimenting. I’m always open to evidence from physics experiments.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

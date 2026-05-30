@@ -6,7 +6,6 @@
 
 James Musk and Ben San Souci
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Reinstatements
 
@@ -80,4 +79,3 @@ Musk was partly mollified, at least for the moment, but there was still the issu
 
 When the meeting was over, Cook walked Musk to the apricot trees and serenity pond in the middle of the circular campus that Jobs had envisioned. Musk pulled out his iPhone to take a video. “Thanks [@tim\_cook](http://www.twitter.com/tim_cook) for taking me around Apple’s beautiful HQ,” he tweeted as soon as he got back into his car. “We resolved the misunderstanding about Twitter potentially being removed from the App Store. Tim was clear that Apple never considered doing so.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

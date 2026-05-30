@@ -4,7 +4,6 @@
 
 ![Image](images/f0029-01.jpg)
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Existential crisis
 
@@ -50,4 +49,3 @@ Thus began a lifelong addiction to video games. “If you’re playing with Elon
 
 He then came up with a grander idea: the cousins could create a video-game arcade of their own. “We knew exactly which games were the most popular, so it seemed like a sure thing,” Elon says. He figured out how the cash flow could finance the machines. But when the boys tried to get the city permits, they were told they needed someone over eighteen to sign the application. Kimbal, who had filled out the thirty pages of forms, decided that they couldn’t ask Errol. “He was just too hard of a human,” Kimbal says. “So we went to Russ and Pete’s dad, and he flipped out. That basically shut the whole thing down.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

@@ -6,7 +6,6 @@
 
 Viewing a landed booster
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Grasshopper
 
@@ -70,4 +69,3 @@ That night, they all went to a waterfront bar called Fishlips to party. Musk hoi
 
 “Congrats @SpaceX on landing Falcon’s suborbital booster stage,” Bezos wrote in a tweet. “Welcome to the club!” Swaddled in his gauze of graciousness was a stiletto jab: the claim that the booster SpaceX landed was “suborbital,” putting it in the same club as the booster that Blue Origin had landed. Technically he was right. The SpaceX booster had never gone into orbit itself, just boosted a payload that did. But Musk was furious. The ability to send a payload into orbit put the SpaceX rocket, he believed, in a different league.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

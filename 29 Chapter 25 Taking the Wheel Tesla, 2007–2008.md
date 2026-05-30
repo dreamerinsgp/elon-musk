@@ -6,7 +6,6 @@
 
 Martin Eberhard and the Roadster
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Eberhard’s ouster
 
@@ -58,4 +57,3 @@ Marks concedes that Musk turned out to be right about the benefits of controllin
 
 When Marks left, Musk recruited a CEO he felt would be tougher: Ze’ev Drori, a combat-tested Israeli paratroop officer who had become a successful entrepreneur in the semiconductor business. “The only person who would actually agree to be CEO of Tesla was someone who was afraid of nothing, because there was a lot to be afraid of,” Musk says. But Drori did not know anything about making cars. After a few months, a delegation of senior executives led by JB Straubel said that they would have trouble continuing to work for him, and Ira Ehrenpreis, a board member, helped convince Musk to take over himself. “I’ve got to have both hands on the steering wheel,” Musk told Drori. “I can’t have two of us driving.” Drori gracefully stepped aside, and Musk became the official CEO of Tesla (and the fourth with that title in about a year) in October 2008.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

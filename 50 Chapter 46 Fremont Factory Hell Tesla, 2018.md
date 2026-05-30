@@ -6,7 +6,6 @@
 
 On the line and resting under his desk at the Fremont factory
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Short-sellers
 
@@ -115,4 +114,3 @@ The algorithm was sometimes accompanied by a few corollaries, among them:
 
 On the assembly line
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

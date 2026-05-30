@@ -78,4 +78,3 @@ After his exchange with Fedorov, Musk felt frustrated. “How am I in this war?�
 
 In the end, with Shotwell’s help, SpaceX made arrangements with various government agencies to pay for increased Starlink service in Ukraine, with the military working out the terms of service. More than 100,000 new dishes were sent to Ukraine at the beginning of 2023. In addition, Starlink launched a companion service called Starshield, which was specifically designed for military use. SpaceX sold or licensed Starshield satellites and services to the U.S. military and other agencies, allowing the government to determine how they could and should be used in Ukraine and elsewhere.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

@@ -14,7 +14,6 @@ Lucas Hughes
 
 A Starship being stacked by the Mechazilla arms
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Mechazilla
 
@@ -136,4 +135,3 @@ One Sunday a few months later, when Starship was again being stacked on the pad,
 
 That attitude would sustain Krebs for another two years. But by Spring 2023, he would become another refugee from Musk’s hardcore all-in approach. After getting married and having a child, he decided it was time to move on and find a better work-life balance.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

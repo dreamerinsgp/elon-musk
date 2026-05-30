@@ -6,7 +6,6 @@
 
 Errol, Kimbal, and Elon
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Baby Nevada
 
@@ -40,4 +39,3 @@ Elon became furious at his father because of what he perceived as his inappropri
 
 One day when Errol was on the boat, he got a message from Elon. “This situation is not working,” he said, and he asked Errol to go back to South Africa. Errol did. A few months later, his wife and family moved back as well. “I tried threats, rewards, and arguments to change my father for the better,” Elon later said. “And he—” Musk breaks off for a long period of silence. “No way, it just got worse.” Personal networks are more complex than digital ones.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

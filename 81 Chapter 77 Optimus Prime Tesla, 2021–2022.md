@@ -10,7 +10,6 @@ A slide showing components of Optimus’s hand
 
 The robot making a heart, the logo for AI Day 2
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Human touch
 
@@ -58,4 +57,3 @@ Musk brought some toys, including a robot that could follow a person with its ey
 
 Afterward, Musk announced that they would hold a public demonstration that would feature Optimus, Full Self-Driving, and Dojo. “In all of these,” he said, “we’re tackling the huge task of creating artificial general intelligence.” The event would be at Tesla’s Palo Alto headquarters on September 30, 2022, and be called AI Day 2. His design team created a logo that showed Optimus touching together its beautifully tapered fingers to form the shape of a heart.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

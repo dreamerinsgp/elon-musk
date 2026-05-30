@@ -38,4 +38,3 @@ But Musk was still picking over each detail. When they were launched on a Falcon
 
 By May 2019, the design of the simplified Starlink was complete and the Falcon 9 rocket began launching them into orbit. When they became operational four months later, Musk was at his south Texas house and went on Twitter. “Sending this tweet through space via Starlink satellite,” he wrote. He was now able to tweet on an internet that he owned.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

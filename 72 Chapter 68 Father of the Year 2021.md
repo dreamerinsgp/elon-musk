@@ -6,7 +6,6 @@
 
 With Shivon, Strider, and Azure; at Tesla with X
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Shivon’s twins
 
@@ -40,4 +39,3 @@ When Musk and Grimes brought Y home from the hospital, they introduced her to X.
 
 The magazine’s accolade marked a peak in his popularity. In 2021, he became the richest person in the world, SpaceX became the first private company to send a civilian crew into orbit, and Tesla reached a trillion-dollar market value by leading the world’s auto industry in a historic shift into the era of electric vehicles. “Few individuals have had more influence than Musk on life on Earth, and potentially life off Earth too,” *Time*’s editor Ed Felsenthal wrote. The *Financial Times* also named him Person of the Year, stating, “Musk is staking a claim to be the most genuinely innovative entrepreneur of his generation.” In his interview with the paper, Musk stressed the missions that drove his companies. “I’m just trying to get people to Mars, and enable freedom of information with Starlink, accelerate sustainable technology with Tesla, and free people from the drudgery of driving,” he said. “It’s certainly possible that the road to hell to some degree is paved with good intentions—but the road to hell is mostly paved with bad intentions.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

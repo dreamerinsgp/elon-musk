@@ -6,7 +6,6 @@
 
 Musk in the control room and with engineers; Koenigsmann pouring champagne on Kwaj
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Founders to the rescue
 
@@ -74,4 +73,3 @@ When they got off his jet, Musk pulled her aside for a chat on the tarmac. “NA
 
 On December 22, as if to ring down the curtain on the horrible year of 2008, Musk got a call on his cell phone. NASA spaceflight chief Bill Gerstenmaier, who would later end up at SpaceX, gave him the news: SpaceX was going to be awarded a $1.6 billion contract to make twelve round trips to the Space Station. “I love NASA,” Musk responded. “You guys rock.” Then he changed his password for his computer login to “ilovenasa.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

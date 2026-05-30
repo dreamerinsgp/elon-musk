@@ -30,4 +30,3 @@ In its story, CNBC reported that Musk “presented bold, visionary promises that
 
 The skepticism was warranted. A year later—indeed, four years later—there would not be a million Tesla Robotaxis, or even one of them, driving autonomously on city streets. But underneath Musk’s hype and willful fantasy was a vision that he remained convinced would, like reusable rockets, someday transform our lives.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

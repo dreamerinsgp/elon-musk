@@ -8,4 +8,3 @@
 >
 > —Steve Jobs
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

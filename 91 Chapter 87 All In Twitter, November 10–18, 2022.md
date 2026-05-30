@@ -10,7 +10,6 @@ Christopher Stanley, far right, taking a selfie with Musk and engineers after a 
 
 Ross Nordeen and James Musk
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Moving in
 
@@ -80,4 +79,3 @@ By 2 p.m., almost three hundred engineers had made it to the office, some carryi
 
 When Musk finally emerged at 8 p.m., he began what he called “desk-siding,” standing next to the workstations of the young engineers and going over their code. His suggestions, they later said, were sometimes good and at other times shallow. They often involved ways to simplify a process. He also stood with them at whiteboards, where they drew the architecture of the Twitter system. Musk peppered the clusters of engineers with questions. Why does search suck? Why are the ads so irrelevant to user interests? It was well after 1 a.m. when he scooped up X and left.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

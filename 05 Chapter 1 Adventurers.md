@@ -14,7 +14,6 @@ Errol, Maye, Elon, Tosca, and Kimbal Musk
 
 Cora and Walter Musk
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Joshua and Winnifred Haldeman
 
@@ -64,4 +63,3 @@ When Maye graduated from college, she moved to Cape Town to give talks about nut
 
 The night of the wedding, Errol and Maye took an inexpensive flight to Europe for their honeymoon. In France, he bought copies of *Playboy*, which was banned in South Africa, and lay on the small hotel bed looking at them, much to Maye’s annoyance. Their fights turned bitter. When they got back to Pretoria, she thought of trying to get out of the marriage. But she soon became nauseated from morning sickness. She had become pregnant on the second night of their honeymoon, in the town of Nice. “It was clear that marrying him had been a mistake,” she recalls, “but now it was impossible to undo.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

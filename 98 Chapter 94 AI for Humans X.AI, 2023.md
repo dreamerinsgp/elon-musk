@@ -6,7 +6,6 @@
 
 In Austin with Shivon Zilis and their twins, Strider and Azure
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## The great race
 
@@ -76,4 +75,3 @@ The third goal that Musk gave the team was even grander. His overriding mission 
 
 Someday, Musk hoped, it would be able to take on even grander and more existential questions. It would be “a maximum truth-seeking AI. It would care about understanding the universe, and that would probably lead it to want to preserve humanity, because we are an interesting part of the universe.” That sounded vaguely familiar, and then I realized why. He was embarking on a mission similar to the one chronicled in the formative (perhaps too formative?) bible of his childhood years, the one that pulled him out of his adolescent existential depression, *The Hitchhiker’s Guide to the Galaxy*, which featured a supercomputer designed to figure out the “Answer to The Ultimate Question of Life, the Universe, and Everything.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

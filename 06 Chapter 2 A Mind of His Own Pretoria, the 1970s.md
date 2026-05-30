@@ -14,7 +14,6 @@ Elon, Kimbal, and Tosca
 
 Elon ready for school
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Lonely and determined
 
@@ -74,4 +73,3 @@ Maye and Errol were each drawn to dramatic intensity rather than domestic bliss,
 
 With broken tooth and scar
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

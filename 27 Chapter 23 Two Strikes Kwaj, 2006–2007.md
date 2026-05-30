@@ -10,7 +10,6 @@ Bülent Altan cooking goulash
 
 Hans Koenigsmann, Chris Thompson, and Anne Chinnery on Kwajalein
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## The first launch attempt
 
@@ -72,4 +71,3 @@ For five full minutes, enough time to pop open a couple of bottles of champagne,
 
 On the video, it looked like the Earth was tumbling in a dryer, but it was actually the second stage spinning. “Catch it, catch it,” an engineer yelled. But by then it was hopeless. At the eleven-minute mark, the feed went blank. The second stage and its payload were crashing back to Earth from 180 miles up. The rocket had reached outer space but had failed to get into orbit. The decision to accept the eleventh item on the risk list—to not incorporate slosh baffles—had come back to bite them. “From now on,” Musk said to Koenigsmann, “we are going to have eleven items on our risk list, never just ten.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

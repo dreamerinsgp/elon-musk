@@ -8,7 +8,6 @@ Walter Isaacson has written biographies of Jennifer Doudna, Leonardo da Vinci, S
 
 [www.SimonandSchuster.com/Authors/Walter-Isaacson](http://www.simonandschuster.com/authors/walter-isaacson)
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 # ALSO BY WALTER ISAACSON
 
@@ -32,11 +31,9 @@ Walter Isaacson has written biographies of Jennifer Doudna, Leonardo da Vinci, S
 
 *Pro and Con*
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ![Image](images/backcover.jpg)
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 We hope you enjoyed reading this Simon & Schuster ebook.
 
@@ -46,4 +43,3 @@ Get a FREE ebook when you join our mailing list. Plus, get updates on new releas
 
 Already a subscriber? Provide your email again so we can register this ebook and send you more of what you like to read. You will continue to receive exclusive offers in your inbox.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

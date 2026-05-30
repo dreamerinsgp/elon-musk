@@ -18,7 +18,6 @@ With Griffin and X in the control room
 
 With Grimes and Tau outside the control room
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Risky business
 
@@ -89,4 +88,3 @@ It was a pleasing concept: an impulse-control button that could defuse Musk’s 
 
 With Grimes and Maye after the launch
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

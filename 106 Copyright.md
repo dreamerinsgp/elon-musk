@@ -28,4 +28,3 @@ ISBN 978-1-9821-8128-4
 
 ISBN 978-1-9821-8130-7 (ebook)
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

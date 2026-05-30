@@ -10,7 +10,6 @@ The Musketeers with the movers in Sacramento
 
 James pushing a server rack
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Head-explosion emoji
 
@@ -126,4 +125,3 @@ Ever since the Twitter purchase, Musk had been in war mode, feeling the siege me
 
 There was a community party to celebrate New Year’s Eve, which culminated with the traditional midnight countdown. After the hugging and fireworks were over, Musk took on his vacant look and started staring into the distance. His friends knew not to interrupt when he was in such a trance, but finally Christiana put her hand on his back and asked if everything was okay. He stayed silent for another minute. “Got to get Starship into orbit,” he finally said. “We’ve got to get Starship into orbit.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

@@ -10,7 +10,6 @@ Jake McKenzie atop a high bay
 
 The construction tents and high bays in Boca Chica
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Engineering mode
 
@@ -58,4 +57,3 @@ After a month, just as suddenly as he had forced his team to focus on a futurist
 
 Was the 1337 surge and retreat a carefully considered strategy by Musk to get his team thinking more boldly, or was it an impulsive act that he later walked back? As usual with him, it was a mix of both. It served a purpose of forcing new ideas, including getting rid of various shrouds and skirts, that would be incorporated into his goals for an improved Raptor. “The exercise helped define what an ideal engine looks like,” McKenzie says. “But it was not moving the needle on stuff that was immediately needed to advance the Starship program.” Over the next year, McKenzie and his team were able to churn out Raptors almost like they were cars on an assembly line. By Thanksgiving 2022, they were making more than one a day, creating a stockpile for future Starship launches.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

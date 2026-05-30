@@ -10,7 +10,6 @@ Omead Afshar, Musk, Franz von Holzhausen, Drew Baglino, Lars Moravy, and Zach Ki
 
 A Robotaxi concept
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## We are all in on autonomy
 
@@ -58,4 +57,3 @@ But a problem soon arose in his mind: He had always believed that Tesla’s desi
 
 So in May 2023, he decided to change the initial build location for the next-generation cars and Robotaxis to Austin, where his own workspace and that of his top engineers would be right next to the new high-speed ultra-automated assembly line. Throughout the summer of 2023, he spent hours each week working with his team to design each station on the line, finding ways to shave milliseconds off each step and process.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

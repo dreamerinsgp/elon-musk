@@ -10,7 +10,6 @@ Antonio Gracias, Kyle Corcoran, Kate Claassen, and Musk with Pappy Van Winkle bo
 
 David Sacks and Gracias standing in the war room
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## The closing bell
 
@@ -46,4 +45,3 @@ A few minutes later, he made his first product tweak. Until then, when people we
 
 Musk was staying at the home of David Sacks. When he got back around 9 p.m., Ro Khanna, the local Democratic congressman, was there. Khanna is a techno-savvy advocate of free speech, but the conversation was not about Twitter. Instead, they discussed Tesla’s role in bringing manufacturing back to America and the danger of not finding a diplomatic resolution to the war in Ukraine. It was an animated conversation lasting almost two hours. “He had just come from closing the Twitter deal, and I was surprised that we didn’t talk about it,” Khanna says. “He seemed to want to talk about other things.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

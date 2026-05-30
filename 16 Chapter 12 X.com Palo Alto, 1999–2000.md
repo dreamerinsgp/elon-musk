@@ -6,7 +6,6 @@
 
 With PayPal cofounder Peter Thiel
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## An all-in-one bank
 
@@ -92,4 +91,3 @@ That didn’t work well on Levchin, who was shielded from irony flamethrowers by
 
 And yet, Levchin began to marvel at the counterexamples, such as when Musk astounded him by knowing things. At one point Levchin and his engineers were wrestling with a difficult problem involving the Oracle database they were using. Musk poked his head in the room and, even though his expertise was with Windows and not Oracle, immediately figured out the context of the conversation, gave a precise and technical answer, and walked out without waiting for confirmation. Levchin and his team went back to their Oracle manuals and looked up what Musk had described. “One by one, we all said, ‘Shit, he’s right,’ ” Levchin recalls. “Elon will say crazy stuff, but every once in a while, he’ll surprise you by knowing way more than you do about your own specialty. I think a huge part of the way he motivates people are these displays of sharpness, which people just don’t expect from him, because they mistake him for a bullshitter or goofball.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

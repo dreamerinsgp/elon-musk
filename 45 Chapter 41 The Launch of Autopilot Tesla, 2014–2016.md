@@ -6,7 +6,6 @@
 
 Franz von Holzhausen with an early “Robotaxi”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Radar
 
@@ -50,4 +49,3 @@ Almost every year, Musk would make another prediction that Full Self-Driving was
 
 “If he lets up and admits that it’s going to take a long time,” von Holzhausen said at the end of 2022, “then nobody will rally around it and we won’t design vehicles that require autonomy.” On an earnings call with analysts that year, Musk admitted that the process had been harder than he expected back in 2016. “Ultimately, what it comes down to,” he said, “is that to solve Full Self-Driving, you actually have to solve real-world artificial intelligence.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

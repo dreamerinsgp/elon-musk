@@ -6,7 +6,6 @@
 
 X shakes hands with Optimus as Milan Kovac and Anand Swaminathan watch
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Hair on fire
 
@@ -56,4 +55,3 @@ Even Musk looked relieved. “Our goal is to make a useful humanoid robot as qui
 
 Milan Kovac
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

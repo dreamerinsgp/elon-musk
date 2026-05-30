@@ -10,7 +10,6 @@ Crary Pullen was the intrepid photo editor, as she was on many of my previous bo
 
 And, as always, Cathy and Betsy.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 | More from the Author | |
 | --- | --- |
@@ -21,4 +20,3 @@ And, as always, Cathy and Betsy.
 |  |  |
 | [The Wise Men](https://www.simonandschuster.com/books/The-Wise-Men/Walter-Isaacson/9781439126530?mcd=ebookrec_auto&utm_campaign=ebookrec_auto "Click to buy the book") | [Steve Jobs](https://www.simonandschuster.com/books/Steve-Jobs/Walter-Isaacson/9781451648553?mcd=ebookrec_auto&utm_campaign=ebookrec_auto "Click to buy the book") |
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

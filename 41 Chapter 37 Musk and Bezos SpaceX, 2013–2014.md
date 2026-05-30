@@ -6,7 +6,6 @@
 
 Having dinner in 2004
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Jeff Bezos
 
@@ -50,4 +49,3 @@ Bezos applauded, but at that moment he was quietly pursuing an unexpected attack
 
 The following year, after SpaceX sued, Bezos agreed to have the patent canceled. But the dispute heightened the rivalry between the two rocket entrepreneurs.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

@@ -10,7 +10,6 @@ With Griffin, Talulah, and Xavier celebrating ringing the NASDAQ opening bell, J
 
 With Marques Brownlee at the Tesla Fremont factory
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Fremont
 
@@ -58,4 +57,3 @@ The dinner was a formal, multicourse affair at a traditional low-table Japanese 
 
 At the dinner, Tsuga agreed to be a 40 percent partner in the Gigafactory. When asked why Panasonic decided to do the deal, he replied, “We are too conservative. We are a ninety-five-year-old company. We have to change. We have to use some of Elon’s thinking.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

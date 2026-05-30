@@ -6,7 +6,6 @@
 
 Straubel takes Governor Arnold Schwarzenegger for a test drive in a Roadster
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Cobbling together pieces
 
@@ -122,4 +121,3 @@ GM had recently discontinued its own lame version of an electric car, the EV1, a
 
 One evening, Eberhard was driving his Roadster around Silicon Valley when a kid in a super-pimped Audi pulled up beside him at a stoplight and revved his engine to challenge him to a drag. When the light changed, Eberhard left him in the dust. The same thing happened at the next two lights. Finally the kid rolled down his window and asked Eberhard what he was driving. “It’s electric,” Eberhard said. “There’s no way you can beat it.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

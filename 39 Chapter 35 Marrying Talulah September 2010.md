@@ -6,7 +6,6 @@
 
 With Talulah at the Kentucky Derby
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## “I can take a hard path”
 
@@ -40,4 +39,3 @@ They didn’t get up until 3 p.m. the next day, just in time to catch the train.
 
 Musk did not have many stable and grounded relationships, nor did he have many stable and grounded periods in his life. No doubt those two things were related. Among his few such relationships was the one he had with Riley, and the years he would spend with her—from their meeting in 2008 to their second divorce in 2016—would end up being the longest stretch of relative stability in his life. If he had liked stability more than storm and drama, she would have been perfect for him.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

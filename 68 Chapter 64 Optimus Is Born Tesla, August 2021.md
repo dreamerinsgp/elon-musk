@@ -6,7 +6,6 @@
 
 An actress dressed as the proposed Optimus robot
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## The friendly robot
 
@@ -42,4 +41,3 @@ With the help of Moravy and Bannon, Kovac cut in half the number of his slides a
 
 The disruption caused the presentation that evening to be delayed by an hour. It was not a very polished event. The sixteen presenters were all male. The only woman was the actress who dressed up as the robot, and she didn’t do any fun hat-and-cane dance routines. There were no acrobatics. But in his slightly stuttering monotone, Musk was able to connect Optimus to Tesla’s plans for self-driving cars and the Dojo supercomputer. Optimus, he said, would learn to perform tasks without needing line-by-line instructions. Like a human, it would teach itself by observing. That would transform not only our economy, he said, but the way we live.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

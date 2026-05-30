@@ -6,7 +6,6 @@
 
 An almost freakish love of risk: Braving a blindfolded knife-thrower at one of his birthday parties
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Tesla financing, December 2008
 
@@ -46,4 +45,3 @@ When the Daimler executives arrived at Tesla in January 2009, they seemed annoye
 
 They went to the parking lot, and the Daimler executives took a test drive. The car bolted forward in an instant and reached sixty miles per hour in about four seconds. It blew them away. “That Smart car hauled ass,” Musk says. “You could do wheelies in that car.” As a result, Daimler contracted with Tesla for battery packs and powertrains for Smart cars, an idea not so different from the one Salzman had suggested. Musk asked Daimler also to consider investing in the company. In May 2009, even before the Department of Energy loans were approved, Daimler agreed to take a $50 million equity stake in Tesla. “If Daimler had not invested in Tesla at that time we would have died,” Musk says.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

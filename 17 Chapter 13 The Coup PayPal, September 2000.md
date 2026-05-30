@@ -14,7 +14,6 @@ Luke Nosek, Ken Howery, David Sacks, Peter Thiel, Keith Rope, Reid Hoffman, Max 
 
 Michael Moritz
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Street fight
 
@@ -80,4 +79,3 @@ The head of human resources at X.com went to visit Musk in the hospital and sort
 
 Musk remained in intensive care for ten days, and he did not fully recover for five months. He took two lessons from his near-death experience: “Vacations will kill you. Also, South Africa. That place is still trying to destroy me.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

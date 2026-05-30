@@ -6,7 +6,6 @@
 
 *Clockwise, from top left:* With Kanye West at SpaceX; Yoel Roth; Jason Calacanis; David Sacks
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Council of one
 
@@ -120,4 +119,3 @@ As he does with people he considers his inner circle, Musk began texting Roth re
 
 Even though Musk had not quite figured out how to pronounce his name (Yo-El), it seemed like this might be the beginning of a beautiful friendship.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

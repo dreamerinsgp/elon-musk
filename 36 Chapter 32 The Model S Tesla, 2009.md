@@ -6,7 +6,6 @@
 
 Drew Baglino and Musk with Franz von Holzhausen
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Henrik Fisker
 
@@ -76,4 +75,3 @@ Musk wanted the Model S to have a large touchscreen at the driver’s fingertips
 
 Most importantly, regarding the car as a piece of software rather than just hardware allowed it to be continuously upgraded. New features could be delivered over the air. “We were amazed at how we could add tons of functionality over the years, including more acceleration,” Musk says. “It allowed the car to get better than when you originally bought it.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

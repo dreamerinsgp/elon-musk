@@ -6,7 +6,6 @@
 
 Inspecting a solar roof installation with Brian Dow on the far right
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 Musk’s surges are sequential. After the Starship stacking surge of the summer of 2021, the next group in his line of fire was the solar roof team.
 
@@ -62,4 +61,3 @@ It took Dow a while to realize that Musk was firing him. “It was just the most
 
 After Dow left, Musk was still not able to make the numbers work. A year later, Tesla Energy was installing only about thirty roofs per week, nowhere close to the one thousand that Musk kept demanding. But his fervor to solve the problem receded in April 2022, when a Delaware court ruled in his favor in the lawsuit over Tesla’s purchase of SolarCity. With that threat lifted, he no longer felt quite as desperate to show that the acquisition made financial sense.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

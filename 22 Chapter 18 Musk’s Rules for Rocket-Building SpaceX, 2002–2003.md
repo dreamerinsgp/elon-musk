@@ -6,7 +6,6 @@
 
 Test stand in McGregor, Texas
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Question every cost
 
@@ -70,4 +69,3 @@ The gamble failed. As soon as pressure was applied, the epoxy came unstuck. The 
 
 A pattern was set: try new ideas and be willing to blow things up. The residents in the area got used to explosions. The cows, however, did not. Like pioneers circling the wagons, they would run in a circle protecting the young calves in the center when a big bang happened. The engineers at McGregor set up what they called a “cow cam” so they could watch.
 
-[*OceanofPDF.com*](https://oceanofpdf.com)

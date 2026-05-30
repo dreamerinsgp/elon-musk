@@ -6,7 +6,6 @@
 
 Antonio Gracias and Tim Watson
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
 
 ## Roadster costs
 
@@ -70,4 +69,3 @@ Watkins and Gracias presented the grim findings to Musk. The cash-sucking supply
 
 Gracias pulled Musk aside later. “This is not going to work,” he said. “Eberhard is not being for real about the numbers.”
 
-[*OceanofPDF.com*](https://oceanofpdf.com)
