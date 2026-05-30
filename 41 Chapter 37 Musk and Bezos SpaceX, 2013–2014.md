@@ -2,7 +2,7 @@
 
 # 37 Musk and Bezos SpaceX, 2013–2014
 
-![Image](../images/f0223-01.jpg)
+![Image](images/f0223-01.jpg)
 
 Having dinner in 2004
 

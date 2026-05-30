@@ -2,11 +2,11 @@
 
 # 90 The Twitter Files Twitter, December 2022
 
-![Image](../images/f0565-01.jpg)
+![Image](images/f0565-01.jpg)
 
 Matt Taibbi
 
-![Image](../images/f0565-02.jpg)
+![Image](images/f0565-02.jpg)
 
 Bari Weiss
 

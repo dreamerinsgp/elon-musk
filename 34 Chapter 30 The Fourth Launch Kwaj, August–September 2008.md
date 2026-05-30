@@ -2,7 +2,7 @@
 
 # 30 The Fourth Launch Kwaj, August–September 2008
 
-![Image](../images/f0182-01.jpg)
+![Image](images/f0182-01.jpg)
 
 Musk in the control room and with engineers; Koenigsmann pouring champagne on Kwaj
 

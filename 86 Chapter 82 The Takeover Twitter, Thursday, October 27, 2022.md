@@ -2,11 +2,11 @@
 
 # 82 The Takeover Twitter, Thursday, October 27, 2022
 
-![Image](../images/f0511-01.jpg)
+![Image](images/f0511-01.jpg)
 
 Antonio Gracias, Kyle Corcoran, Kate Claassen, and Musk with Pappy Van Winkle bourbon
 
-![Image](../images/f0511-02.jpg)
+![Image](images/f0511-02.jpg)
 
 David Sacks and Gracias standing in the war room
 

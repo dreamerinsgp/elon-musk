@@ -2,7 +2,7 @@
 
 # 18 Musk’s Rules for Rocket-Building SpaceX, 2002–2003
 
-![Image](../images/f0111-01.jpg)
+![Image](images/f0111-01.jpg)
 
 Test stand in McGregor, Texas
 

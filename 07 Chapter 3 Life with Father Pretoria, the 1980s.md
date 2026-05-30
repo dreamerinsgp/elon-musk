@@ -2,15 +2,15 @@
 
 # 3 Life with Father Pretoria, the 1980s
 
-![Image](../images/f0022-01.jpg)
+![Image](images/f0022-01.jpg)
 
 Elon pokes a tortoise and Errol watches
 
-![Image](../images/f0022-02.jpg)
+![Image](images/f0022-02.jpg)
 
 Kimbal and Elon with Peter and Russ Rive
 
-![Image](../images/f0022-03.jpg)
+![Image](images/f0022-03.jpg)
 
 The lodge in the Timbavati Game Reserve
 
@@ -68,7 +68,7 @@ Musk read both sets of his father’s encyclopedias and became, to his doting mo
 
 One book that he found in his father’s office described great inventions that would be made in the future. “I would come back from school and go to a side room in my father’s office and read it over and over,” he says. Among the ideas was a rocket propelled by an ion thruster, which would use particles rather than gas for thrust. Late one night at the control room of his rocket base in south Texas, Musk described the book at length to me, including how an ion thruster would work in a vacuum. “That book is what first made me think about going to other planets,” he said.
 
-![Image](../images/f0028-01.jpg)
+![Image](images/f0028-01.jpg)
 
 Russ Rive, Elon, Kimbal, and Peter Rive
 

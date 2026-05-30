@@ -2,7 +2,7 @@
 
 # 25 Taking the Wheel Tesla, 2007–2008
 
-![Image](../images/f0162-01.jpg)
+![Image](images/f0162-01.jpg)
 
 Martin Eberhard and the Roadster
 

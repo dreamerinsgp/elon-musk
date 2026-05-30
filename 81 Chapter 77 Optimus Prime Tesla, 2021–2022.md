@@ -2,11 +2,11 @@
 
 # 77 Optimus Prime Tesla, 2021–2022
 
-![Image](../images/f0482-01.jpg)
+![Image](images/f0482-01.jpg)
 
 A slide showing components of Optimus’s hand
 
-![Image](../images/f0482-02.jpg)
+![Image](images/f0482-02.jpg)
 
 The robot making a heart, the logo for AI Day 2
 

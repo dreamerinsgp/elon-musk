@@ -2,7 +2,7 @@
 
 # 61 Nights Out Summer 2021
 
-![Image](../images/f0376-01.jpg)
+![Image](images/f0376-01.jpg)
 
 With Maye onstage at *Saturday Night Live* and with Grimes at a party
 

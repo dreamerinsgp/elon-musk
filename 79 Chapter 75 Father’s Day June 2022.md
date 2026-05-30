@@ -2,15 +2,15 @@
 
 # 75 Father’s Day June 2022
 
-![Image](../images/f0466-01.jpg)
+![Image](images/f0466-01.jpg)
 
 Feeding Tau
 
-![Image](../images/f0466-02.jpg)
+![Image](images/f0466-02.jpg)
 
 X watching a rocket launch video on Musk’s plane
 
-![Image](../images/f0466-03.jpg)
+![Image](images/f0466-03.jpg)
 
 With Lord Norman Foster in Austin, dreaming of a house
 
@@ -68,7 +68,7 @@ Through all of the tumult in his personal life, Musk had one lovely steadying in
 
 When a close friend of hers died in 2021, Musk flew to England and spent a day at her house. “We just watched stupid TV and laughed and hung out and he just made me laugh instead of cry,” she says. And amid his personal and Twitter-deal tumults in the early summer of 2022, she flew to Los Angeles and met him for dinner at the Beverly Hills Hotel.
 
-She traveled with her new boyfriend, the young actor Thomas Brodie-Sangster, to publicize a movie they had costarred in, *Pistol*, about the pioneering punk rock band The Sex Pistols. But Brodie-Sangster did not come to the dinner. Instead, Musk and Riley were joined by his four older boys, who had bonded with her over the years. “I can’t get over how completely gorgeous they all are,” she texted me. “Griffin is handsome, hilarious and still an utter charmer, Damian has blossomed into an incredibly sophisticated and beautiful soul, Kai is still a thoroughly decent chap and now so gorgeously geeky, and Saxon’s language development is more than I could have possibly hoped for—we had full and detailed conversations. Except at one point he said, ‘The interesting thing about you and Elon is you have a significant age gap… But you look the same.’ ![](../images/common02.jpg)![](../images/common02.jpg).”
+She traveled with her new boyfriend, the young actor Thomas Brodie-Sangster, to publicize a movie they had costarred in, *Pistol*, about the pioneering punk rock band The Sex Pistols. But Brodie-Sangster did not come to the dinner. Instead, Musk and Riley were joined by his four older boys, who had bonded with her over the years. “I can’t get over how completely gorgeous they all are,” she texted me. “Griffin is handsome, hilarious and still an utter charmer, Damian has blossomed into an incredibly sophisticated and beautiful soul, Kai is still a thoroughly decent chap and now so gorgeously geeky, and Saxon’s language development is more than I could have possibly hoped for—we had full and detailed conversations. Except at one point he said, ‘The interesting thing about you and Elon is you have a significant age gap… But you look the same.’ ![](images/common02.jpg)![](images/common02.jpg).”
 
 The reunion was very emotional. There was a part of her that still loved Musk. When she got back to her hotel room that night, Brodie-Sangster had to cope with her bursting into tears.
 

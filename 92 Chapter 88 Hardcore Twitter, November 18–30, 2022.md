@@ -2,7 +2,7 @@
 
 # 88 Hardcore Twitter, November 18–30, 2022
 
-![Image](../images/f0553-01.jpg)
+![Image](images/f0553-01.jpg)
 
 James Musk and Ben San Souci
 

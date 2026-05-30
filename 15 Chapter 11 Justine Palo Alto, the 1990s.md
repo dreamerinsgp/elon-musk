@@ -2,11 +2,11 @@
 
 # 11 Justine Palo Alto, the 1990s
 
-![Image](../images/f0068-01.jpg)
+![Image](images/f0068-01.jpg)
 
 Justine, Elon, and Maye
 
-![Image](../images/f0068-02.jpg)
+![Image](images/f0068-02.jpg)
 
 The family, with Errol and Maye second and third from the right
 
@@ -50,6 +50,6 @@ The tension continued the next day. Kimbal and Farooq tried to convince Musk to 
 
 On the surface, the ceremony by the hotel swimming pool seemed joyous. Justine looked radiant in a sleeveless white dress and a tiara of white flowers, and Musk looked dapper in a tailored tuxedo. Both Maye and Errol were there, and they even posed for pictures together. After dinner, everyone joined in a conga line, then Elon and Justine took the first dance. He put both arms on her waist. She put her arms around his neck. They smiled and kissed. Then, as they danced, he whispered to her a reminder: “I am the alpha in this relationship.”
 
-![Image](../images/f0072-01.jpg)
+![Image](images/f0072-01.jpg)
 
 [*OceanofPDF.com*](https://oceanofpdf.com)

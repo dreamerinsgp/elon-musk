@@ -2,7 +2,7 @@
 
 # 4 The Seeker Pretoria, the 1980s
 
-![Image](../images/f0029-01.jpg)
+![Image](images/f0029-01.jpg)
 
 [*OceanofPDF.com*](https://oceanofpdf.com)
 

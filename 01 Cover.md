@@ -1,6 +1,6 @@
 # Cover
 
-![Elon Musk, by Walter Isaacson.](../images/9781982181307.jpg)
+![Elon Musk, by Walter Isaacson.](images/9781982181307.jpg)
 
 [*OceanofPDF.com*](https://oceanofpdf.com)
 

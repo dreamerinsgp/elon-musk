@@ -2,19 +2,19 @@
 
 # 95 The Starship Launch SpaceX, April 2023
 
-![Image](../images/f0607-01.jpg)
+![Image](images/f0607-01.jpg)
 
 Musk, Juncosa, and McKenzie atop a high bay in Boca Chica
 
-![Image](../images/f0607-02.jpg)
+![Image](images/f0607-02.jpg)
 
 Watching the Starship launch from the control room
 
-![Image](../images/f0607-03.jpg)
+![Image](images/f0607-03.jpg)
 
 With Griffin and X in the control room
 
-![Image](../images/f0607-04.jpg)
+![Image](images/f0607-04.jpg)
 
 With Grimes and Tau outside the control room
 
@@ -85,7 +85,7 @@ During launch week, Antonio Gracias and some other friends talked to Musk about 
 
 It was a pleasing concept: an impulse-control button that could defuse Musk’s tweets as well as all of his dark impulsive actions and demon-mode eruptions that leave rubble in his wake. But would a restrained Musk accomplish as much as a Musk unbound? Is being unfiltered and untethered integral to who he is? Could you get the rockets to orbit or the transition to electric vehicles without accepting all aspects of him, hinged and unhinged? Sometimes great innovators are risk-seeking man-children who resist potty training. They can be reckless, cringeworthy, sometimes even toxic. They can also be crazy. Crazy enough to think they can change the world.
 
-![Image](../images/f0615-01.jpg)
+![Image](images/f0615-01.jpg)
 
 With Grimes and Maye after the launch
 

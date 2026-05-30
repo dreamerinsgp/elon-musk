@@ -2,7 +2,7 @@
 
 # 60 Solar Surge Summer 2021
 
-![Image](../images/f0369-01.jpg)
+![Image](images/f0369-01.jpg)
 
 Inspecting a solar roof installation with Brian Dow on the far right
 

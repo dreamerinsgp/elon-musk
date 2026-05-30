@@ -2,7 +2,7 @@
 
 # 6 Canada 1989
 
-![Image](../images/f0040-01.jpg)
+![Image](images/f0040-01.jpg)
 
 At his cousin’s barn in Saskatchewan and in his bedroom in Toronto
 
@@ -34,7 +34,7 @@ After a few months, they were making enough money to afford a rent-controlled th
 
 He had no friends or social life in Toronto, and he spent most of his time reading or working on the computer. Tosca, on the contrary, was a saucy teenager, eager to go out. “I’m coming with you,” Elon would declare, not wanting to be lonely. “No you’re not,” she would reply. But when he insisted, she ordered, “You have to stay ten feet away from me at all times.” He did. He would walk behind her and her friends, carrying a book to read whenever they went into a club or party.
 
-![Image](../images/f0043-01.jpg)
+![Image](images/f0043-01.jpg)
 
 Dancing with Kimbal in Toronto
 

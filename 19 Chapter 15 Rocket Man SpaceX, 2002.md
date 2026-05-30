@@ -2,7 +2,7 @@
 
 # 15 Rocket Man SpaceX, 2002
 
-![Image](../images/f0097-01.jpg)
+![Image](images/f0097-01.jpg)
 
 With Adeo Ressi at a rocket facility and a dinner with Russians in Moscow
 

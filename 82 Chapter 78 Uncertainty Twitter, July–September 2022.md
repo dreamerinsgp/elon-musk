@@ -2,11 +2,11 @@
 
 # 78 Uncertainty Twitter, July–September 2022
 
-![Image](../images/f0488-01.jpg)
+![Image](images/f0488-01.jpg)
 
 Ari Emanuel hosing Musk down in Mykonos
 
-![Image](../images/f0488-02.jpg)
+![Image](images/f0488-02.jpg)
 
 Alex Spiro
 

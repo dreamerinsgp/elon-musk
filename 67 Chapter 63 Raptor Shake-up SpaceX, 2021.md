@@ -2,11 +2,11 @@
 
 # 63 Raptor Shake-up SpaceX, 2021
 
-![Image](../images/f0387-01.jpg)
+![Image](images/f0387-01.jpg)
 
 Jake McKenzie atop a high bay
 
-![Image](../images/f0387-02.jpg)
+![Image](images/f0387-02.jpg)
 
 The construction tents and high bays in Boca Chica
 

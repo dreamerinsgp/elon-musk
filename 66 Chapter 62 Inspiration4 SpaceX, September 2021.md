@@ -2,11 +2,11 @@
 
 # 62 Inspiration4 SpaceX, September 2021
 
-![Image](../images/f0382-01.jpg)
+![Image](images/f0382-01.jpg)
 
 Jared Isaacman
 
-![Image](../images/f0382-02.jpg)
+![Image](images/f0382-02.jpg)
 
 Musk with Hans Koenigsmann
 

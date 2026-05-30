@@ -2,7 +2,7 @@
 
 # 7 Queen’s Kingston, Ontario, 1990–1991
 
-![Image](../images/f0044-01.jpg)
+![Image](images/f0044-01.jpg)
 
 With Navaid Farooq at Queen’s and with his new suit
 

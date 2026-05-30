@@ -2,7 +2,7 @@
 
 # 94 AI for Humans X.AI, 2023
 
-![Image](../images/f0599-01.jpg)
+![Image](images/f0599-01.jpg)
 
 In Austin with Shivon Zilis and their twins, Strider and Azure
 

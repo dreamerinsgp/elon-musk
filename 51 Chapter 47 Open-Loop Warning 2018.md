@@ -2,7 +2,7 @@
 
 # 47 Open-Loop Warning 2018
 
-![Image](../images/f0287-01.jpg)
+![Image](images/f0287-01.jpg)
 
 With the Prime Minister of Thailand inspecting the mini-sub; preparing to enter the cave with the trapped boys
 

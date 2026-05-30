@@ -2,7 +2,7 @@
 
 # 8 Penn Philadelphia, 1992–1994
 
-![Image](../images/f0049-01.jpg)
+![Image](images/f0049-01.jpg)
 
 With Robin Ren at Penn; with cousin Peter Rive and Kimbal in Boston
 

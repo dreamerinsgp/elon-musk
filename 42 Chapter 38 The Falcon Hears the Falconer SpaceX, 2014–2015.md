@@ -2,7 +2,7 @@
 
 # 38 The Falcon Hears the Falconer SpaceX, 2014–2015
 
-![Image](../images/f0229-01.jpg)
+![Image](images/f0229-01.jpg)
 
 Viewing a landed booster
 

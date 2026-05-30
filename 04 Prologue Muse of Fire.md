@@ -2,7 +2,7 @@
 
 # PROLOGUE Muse of Fire
 
-![Image](../images/f0001-01.jpg)
+![Image](images/f0001-01.jpg)
 
 [*OceanofPDF.com*](https://oceanofpdf.com)
 

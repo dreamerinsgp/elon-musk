@@ -2,7 +2,7 @@
 
 # 9 Go West Silicon Valley, 1994–1995
 
-![Image](../images/f0054-01.jpg)
+![Image](images/f0054-01.jpg)
 
 July 1994
 
@@ -46,7 +46,7 @@ Just before the enrollment deadline for Stanford, Musk went to Toronto to get ad
 
 He actually hedged his bets. He officially enrolled at Stanford and then immediately requested a deferral. “I’ve written some software with the first internet maps and Yellow Pages directory,” he told Bill Nix, the material science professor. “I will probably fail, and if so I would like to come back.” Nix said it would not be a problem for Musk to defer his studies, but he predicted that he would never come back.
 
-![Image](../images/f0059-01.jpg)
+![Image](images/f0059-01.jpg)
 
 May 1995
 

@@ -2,11 +2,11 @@
 
 # 36 Manufacturing Tesla, 2010–2013
 
-![Image](../images/f0217-01.jpg)
+![Image](images/f0217-01.jpg)
 
 With Griffin, Talulah, and Xavier celebrating ringing the NASDAQ opening bell, June 2010
 
-![Image](../images/f0217-02.jpg)
+![Image](images/f0217-02.jpg)
 
 With Marques Brownlee at the Tesla Fremont factory
 

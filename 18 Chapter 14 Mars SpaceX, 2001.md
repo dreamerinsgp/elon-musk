@@ -2,11 +2,11 @@
 
 # 14 Mars SpaceX, 2001
 
-![Image](../images/f0090-01.jpg)
+![Image](images/f0090-01.jpg)
 
 Learning to fly
 
-![Image](../images/f0090-02.jpg)
+![Image](images/f0090-02.jpg)
 
 Adeo Ressi
 

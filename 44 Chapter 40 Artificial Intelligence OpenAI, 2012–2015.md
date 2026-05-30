@@ -2,7 +2,7 @@
 
 # 40 Artificial Intelligence OpenAI, 2012–2015
 
-![Image](../images/f0239-01.jpg)
+![Image](images/f0239-01.jpg)
 
 With Sam Altman
 

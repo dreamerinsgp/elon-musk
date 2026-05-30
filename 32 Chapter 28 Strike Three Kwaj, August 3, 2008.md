@@ -2,7 +2,7 @@
 
 # 28 Strike Three Kwaj, August 3, 2008
 
-![Image](../images/f0175-01.jpg)
+![Image](images/f0175-01.jpg)
 
 Hans Koenigsmann with a Falcon 1
 

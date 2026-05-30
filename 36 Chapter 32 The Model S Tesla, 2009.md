@@ -2,7 +2,7 @@
 
 # 32 The Model S Tesla, 2009
 
-![Image](../images/f0195-01.jpg)
+![Image](images/f0195-01.jpg)
 
 Drew Baglino and Musk with Franz von Holzhausen
 

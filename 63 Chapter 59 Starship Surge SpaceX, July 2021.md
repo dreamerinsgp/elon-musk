@@ -2,15 +2,15 @@
 
 # 59 Starship Surge SpaceX, July 2021
 
-![Image](../images/f0358-01.jpg)
+![Image](images/f0358-01.jpg)
 
 Andy Krebs
 
-![Image](../images/f0358-02.jpg)
+![Image](images/f0358-02.jpg)
 
 Lucas Hughes
 
-![Image](../images/f0358-03.jpg)
+![Image](images/f0358-03.jpg)
 
 A Starship being stacked by the Mechazilla arms
 

@@ -2,7 +2,7 @@
 
 # 56 Family Life 2020
 
-![Image](../images/f0340-01.jpg)
+![Image](images/f0340-01.jpg)
 
 With Grimes and Baby X, and with his older children
 

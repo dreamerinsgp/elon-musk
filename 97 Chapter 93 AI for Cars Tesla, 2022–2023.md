@@ -2,7 +2,7 @@
 
 # 93 AI for Cars Tesla, 2022–2023
 
-![Image](../images/f0592-01.jpg)
+![Image](images/f0592-01.jpg)
 
 Dhaval Shroff and his Tesla desk
 

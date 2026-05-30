@@ -2,11 +2,11 @@
 
 # 58 Bezos vs. Musk, Round 2 SpaceX, 2021
 
-![Image](../images/f0353-01.jpg)
+![Image](images/f0353-01.jpg)
 
 Jeff Bezos right after his trip
 
-![Image](../images/f0353-02.jpg)
+![Image](images/f0353-02.jpg)
 
 Richard Branson right before his
 

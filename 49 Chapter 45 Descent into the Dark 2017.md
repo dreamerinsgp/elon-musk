@@ -2,7 +2,7 @@
 
 # 45 Descent into the Dark 2017
 
-![Image](../images/f0267-01.jpg)
+![Image](images/f0267-01.jpg)
 
 Examining a battery pack with Omead Afshar (*far left*)
 
@@ -84,7 +84,7 @@ The experience became a lesson that would become part of Musk’s production alg
 
 By April 2018, the Nevada factory was working better. The weather had warmed up a bit, so Musk decided he would sleep on the factory roof instead of driving to a motel. His assistant bought a few tents, and his friend Bill Lee and Sam Teller joined him. After inspecting the module and pack assembly lines until close to 1 a.m. one night, they went up to the roof, lit a little portable fire pit, and talked about the next challenge. Musk was ready to turn his attention to Fremont.
 
-![Image](../images/f0275-01.jpg)
+![Image](images/f0275-01.jpg)
 
 In the Jupiter conference room in Fremont in 2008, watching a launch and the Tesla production numbers
 

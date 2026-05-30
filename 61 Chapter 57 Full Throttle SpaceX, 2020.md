@@ -2,7 +2,7 @@
 
 # 57 Full Throttle SpaceX, 2020
 
-![Image](../images/f0347-01.jpg)
+![Image](images/f0347-01.jpg)
 
 With Kiko Dontchev, and at the Cape Canaveral launch tower
 

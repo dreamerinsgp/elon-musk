@@ -2,7 +2,7 @@
 
 # 85 Halloween Twitter, October 2022
 
-![Image](../images/f0532-01.jpg)
+![Image](images/f0532-01.jpg)
 
 Maye dressed for Halloween 2022 and watching one of her son’s presentations
 

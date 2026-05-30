@@ -2,7 +2,7 @@
 
 # 17 Revving Up SpaceX, 2002
 
-![Image](../images/f0106-01.jpg)
+![Image](images/f0106-01.jpg)
 
 Tom Mueller
 

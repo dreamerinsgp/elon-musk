@@ -2,7 +2,7 @@
 
 # 22 Kwaj SpaceX, 2005–2006
 
-![Image](../images/f0144-01.jpg)
+![Image](images/f0144-01.jpg)
 
 Hans Koenigsmann and Omelek Island in the Kwajalein Atoll
 

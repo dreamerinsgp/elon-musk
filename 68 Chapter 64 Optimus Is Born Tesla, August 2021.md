@@ -2,7 +2,7 @@
 
 # 64 Optimus Is Born Tesla, August 2021
 
-![Image](../images/f0393-01.jpg)
+![Image](images/f0393-01.jpg)
 
 An actress dressed as the proposed Optimus robot
 

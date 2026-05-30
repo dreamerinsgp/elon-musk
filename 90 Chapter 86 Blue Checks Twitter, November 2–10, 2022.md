@@ -2,11 +2,11 @@
 
 # 86 Blue Checks Twitter, November 2–10, 2022
 
-![Image](../images/f0536-01.jpg)
+![Image](images/f0536-01.jpg)
 
 A presentation in the conference room
 
-![Image](../images/f0536-02.jpg)
+![Image](images/f0536-02.jpg)
 
 James Musk, Dhaval Shroff, and Andrew Musk assessing engineers
 

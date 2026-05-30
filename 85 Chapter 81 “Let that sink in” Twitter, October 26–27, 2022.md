@@ -2,7 +2,7 @@
 
 # 81 “Let that sink in” Twitter, October 26–27, 2022
 
-![Image](../images/f0506-01.jpg)
+![Image](images/f0506-01.jpg)
 
 Entering Twitter headquarters and visiting the coffee bar on the tenth floor
 

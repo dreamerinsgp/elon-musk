@@ -2,7 +2,7 @@
 
 # 66 Vision Only Tesla, January 2021
 
-![Image](../images/f0404-01.jpg)
+![Image](images/f0404-01.jpg)
 
 A slide showing the progress being made on autonomous cars
 

@@ -2,11 +2,11 @@
 
 # 92 Christmas Capers December 2022
 
-![Image](../images/f0581-01.jpg)
+![Image](images/f0581-01.jpg)
 
 The Musketeers with the movers in Sacramento
 
-![Image](../images/f0581-02.jpg)
+![Image](images/f0581-02.jpg)
 
 James pushing a server rack
 

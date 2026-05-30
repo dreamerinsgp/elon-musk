@@ -2,7 +2,7 @@
 
 # 55 Giga Texas Tesla, 2020–2021
 
-![Image](../images/f0335-01.jpg)
+![Image](images/f0335-01.jpg)
 
 Omead Afshar
 

@@ -2,7 +2,7 @@
 
 # 41 The Launch of Autopilot Tesla, 2014–2016
 
-![Image](../images/f0245-01.jpg)
+![Image](images/f0245-01.jpg)
 
 Franz von Holzhausen with an early “Robotaxi”
 

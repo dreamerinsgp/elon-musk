@@ -2,7 +2,7 @@
 
 # 84 Content Moderation Twitter, October 27–30, 2022
 
-![Image](../images/f0523-01.jpg)
+![Image](images/f0523-01.jpg)
 
 *Clockwise, from top left:* With Kanye West at SpaceX; Yoel Roth; Jason Calacanis; David Sacks
 

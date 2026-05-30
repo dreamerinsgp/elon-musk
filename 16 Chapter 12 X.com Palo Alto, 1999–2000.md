@@ -2,7 +2,7 @@
 
 # 12 X.com Palo Alto, 1999–2000
 
-![Image](../images/f0073-01.jpg)
+![Image](images/f0073-01.jpg)
 
 With PayPal cofounder Peter Thiel
 

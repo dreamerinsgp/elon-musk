@@ -2,11 +2,11 @@
 
 # 87 All In Twitter, November 10–18, 2022
 
-![Image](../images/f0546-01.jpg)
+![Image](images/f0546-01.jpg)
 
 Christopher Stanley, far right, taking a selfie with Musk and engineers after a hackathon
 
-![Image](../images/f0546-02.jpg)
+![Image](images/f0546-02.jpg)
 
 Ross Nordeen and James Musk
 

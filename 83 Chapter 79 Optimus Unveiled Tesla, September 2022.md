@@ -2,7 +2,7 @@
 
 # 79 Optimus Unveiled Tesla, September 2022
 
-![Image](../images/f0495-01.jpg)
+![Image](images/f0495-01.jpg)
 
 X shakes hands with Optimus as Milan Kovac and Anand Swaminathan watch
 
@@ -52,7 +52,7 @@ The curtains, emblazoned with the logo of Optimus’s hands forming a heart, par
 
 Even Musk looked relieved. “Our goal is to make a useful humanoid robot as quickly as possible,” he told the audience. Eventually, he promised, there would be millions of them. “This means a future of abundance, a future where there is no poverty. We can afford to have a universal basic income we give people. It really is a fundamental transformation of civilization.”
 
-![Image](../images/f0500-01.jpg)
+![Image](images/f0500-01.jpg)
 
 Milan Kovac
 

@@ -2,7 +2,7 @@
 
 # 44 Rocky Relationships 2016–2017
 
-![Image](../images/f0260-01.jpg)
+![Image](images/f0260-01.jpg)
 
 With Amber Heard, who left a kiss mark on his cheek; with Donald Trump; Errol Musk
 

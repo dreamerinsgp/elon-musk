@@ -2,7 +2,7 @@
 
 # 16 Fathers and Sons Los Angeles, 2002
 
-![Image](../images/f0102-01.jpg)
+![Image](images/f0102-01.jpg)
 
 Errol, Kimbal, and Elon
 

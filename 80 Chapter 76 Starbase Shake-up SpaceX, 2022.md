@@ -2,7 +2,7 @@
 
 # 76 Starbase Shake-up SpaceX, 2022
 
-![Image](../images/f0474-01.jpg)
+![Image](images/f0474-01.jpg)
 
 Inspecting the Raptor engines under a Starship booster
 

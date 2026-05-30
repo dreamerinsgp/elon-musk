@@ -2,7 +2,7 @@
 
 # 68 Father of the Year 2021
 
-![Image](../images/f0412-01.jpg)
+![Image](images/f0412-01.jpg)
 
 With Shivon, Strider, and Azure; at Tesla with X
 

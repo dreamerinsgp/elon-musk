@@ -2,7 +2,7 @@
 
 # 49 Grimes 2018
 
-![Image](../images/f0305-01.jpg)
+![Image](images/f0305-01.jpg)
 
 Claire Boucher, known as Grimes, dressed for a performance; with Musk at the Metropolitan Museum gala
 

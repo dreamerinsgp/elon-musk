@@ -2,7 +2,7 @@
 
 # 20 Founders Tesla, 2003–2004
 
-![Image](../images/f0124-01.jpg)
+![Image](images/f0124-01.jpg)
 
 JB Straubel, with his scar; Martin Eberhard and Marc Tarpenning
 

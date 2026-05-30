@@ -2,7 +2,7 @@
 
 # 53 Starship SpaceX, 2018–2019
 
-![Image](../images/f0325-01.jpg)
+![Image](images/f0325-01.jpg)
 
 Musk’s living room and backyard in Boca Chica; Bill Riley and Mark Juncosa
 

@@ -2,7 +2,7 @@
 
 # 51 Cybertruck Tesla, 2018–2019
 
-![Image](../images/f0315-01.jpg)
+![Image](images/f0315-01.jpg)
 
 With Franz von Holzhausen discussing Cybertruck design, 2018
 

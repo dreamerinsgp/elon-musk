@@ -2,15 +2,15 @@
 
 # 2 A Mind of His Own Pretoria, the 1970s
 
-![Image](../images/f0015-01.jpg)
+![Image](images/f0015-01.jpg)
 
 Elon and Maye Musk
 
-![Image](../images/f0015-02.jpg)
+![Image](images/f0015-02.jpg)
 
 Elon, Kimbal, and Tosca
 
-![Image](../images/f0015-03.jpg)
+![Image](images/f0015-03.jpg)
 
 Elon ready for school
 
@@ -70,7 +70,7 @@ Elon developed into a night person, staying up until dawn reading books. When he
 
 Maye and Errol were each drawn to dramatic intensity rather than domestic bliss, a trait they would pass on. After her divorce, Maye began dating another abusive man. The children hated him and would occasionally put tiny firecrackers in his cigarettes that would explode when he lit up. Soon after the man proposed marriage, he got another woman pregnant. “She had been a friend of mine,” Maye says. “We had modeled together.”
 
-![Image](../images/f0021-01.jpg)
+![Image](images/f0021-01.jpg)
 
 With broken tooth and scar
 

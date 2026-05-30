@@ -2,7 +2,7 @@
 
 # 21 The Roadster Tesla, 2004–2006
 
-![Image](../images/f0131-01.jpg)
+![Image](images/f0131-01.jpg)
 
 Straubel takes Governor Arnold Schwarzenegger for a test drive in a Roadster
 

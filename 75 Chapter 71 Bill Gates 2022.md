@@ -2,7 +2,7 @@
 
 # 71 Bill Gates 2022
 
-![Image](../images/f0435-01.jpg)
+![Image](images/f0435-01.jpg)
 
 With Gates at the Boao Forum for Asia in Qionghai, China, 2015
 

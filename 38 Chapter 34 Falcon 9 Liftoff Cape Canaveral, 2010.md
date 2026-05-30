@@ -2,7 +2,7 @@
 
 # 34 Falcon 9 Liftoff Cape Canaveral, 2010
 
-![Image](../images/f0209-01.jpg)
+![Image](images/f0209-01.jpg)
 
 Marc Juncosa, center, leading a toast to the Falcon 9 liftoff
 

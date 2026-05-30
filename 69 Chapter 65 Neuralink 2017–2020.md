@@ -2,7 +2,7 @@
 
 # 65 Neuralink 2017–2020
 
-![Image](../images/f0398-01.jpg)
+![Image](images/f0398-01.jpg)
 
 A monkey playing *Pong* using only his brainwaves
 

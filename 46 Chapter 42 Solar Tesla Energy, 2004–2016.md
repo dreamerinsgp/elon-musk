@@ -2,7 +2,7 @@
 
 # 42 Solar Tesla Energy, 2004–2016
 
-![Image](../images/f0251-01.jpg)
+![Image](images/f0251-01.jpg)
 
 Lyndon and Peter Rive
 

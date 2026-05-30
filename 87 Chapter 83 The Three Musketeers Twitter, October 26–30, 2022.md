@@ -2,15 +2,15 @@
 
 # 83 The Three Musketeers Twitter, October 26–30, 2022
 
-![Image](../images/f0515-01.jpg)
+![Image](images/f0515-01.jpg)
 
 With James Musk, Dhaval Shroff and Andrew Musk judging code
 
-![Image](../images/f0515-02.jpg)
+![Image](images/f0515-02.jpg)
 
 Ross Nordeen studying Twitter’s software architecture
 
-![Image](../images/f0515-03.jpg)
+![Image](images/f0515-03.jpg)
 
 James and Andrew Musk
 

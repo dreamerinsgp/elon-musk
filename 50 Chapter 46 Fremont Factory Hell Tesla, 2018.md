@@ -2,7 +2,7 @@
 
 # 46 Fremont Factory Hell Tesla, 2018
 
-![Image](../images/f0276-01.jpg)
+![Image](images/f0276-01.jpg)
 
 On the line and resting under his desk at the Fremont factory
 
@@ -111,7 +111,7 @@ The algorithm was sometimes accompanied by a few corollaries, among them:
 * A maniacal sense of urgency is our operating principle.
 * The only rules are the ones dictated by the laws of physics. Everything else is a recommendation.
 
-![Image](../images/f0286-01.jpg)
+![Image](images/f0286-01.jpg)
 
 On the assembly line
 

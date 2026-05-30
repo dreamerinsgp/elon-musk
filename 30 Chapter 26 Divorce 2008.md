@@ -2,7 +2,7 @@
 
 # 26 Divorce 2008
 
-![Image](../images/f0168-01.jpg)
+![Image](images/f0168-01.jpg)
 
 Justine
 

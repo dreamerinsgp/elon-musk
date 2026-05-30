@@ -2,15 +2,15 @@
 
 # 39 The Talulah Roller Coaster 2012–2015
 
-![Image](../images/f0235-01.jpg)
+![Image](images/f0235-01.jpg)
 
 Taking on a Sumo wrestler
 
-![Image](../images/f0235-02.jpg)
+![Image](images/f0235-02.jpg)
 
 With Talulah
 
-![Image](../images/f0235-03.jpg)
+![Image](images/f0235-03.jpg)
 
 With Navaid Farooq
 

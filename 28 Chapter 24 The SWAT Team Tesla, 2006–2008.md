@@ -2,7 +2,7 @@
 
 # 24 The SWAT Team Tesla, 2006–2008
 
-![Image](../images/f0155-01.jpg)
+![Image](images/f0155-01.jpg)
 
 Antonio Gracias and Tim Watson
 

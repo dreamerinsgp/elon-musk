@@ -2,7 +2,7 @@
 
 # 29 On the Brink Tesla and SpaceX, 2008
 
-![Image](../images/f0178-01.jpg)
+![Image](images/f0178-01.jpg)
 
 In the SpaceX control room
 

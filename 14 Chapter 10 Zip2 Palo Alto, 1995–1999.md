@@ -2,7 +2,7 @@
 
 # 10 Zip2 Palo Alto, 1995–1999
 
-![Image](../images/f0060-01.jpg)
+![Image](images/f0060-01.jpg)
 
 Celebrating the sale of Zip2 with Maye and Kimbal; taking delivery of the McLaren with Justine
 

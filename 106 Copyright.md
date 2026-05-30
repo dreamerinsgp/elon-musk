@@ -1,6 +1,6 @@
 # Copyright
 
-![Logo: Simon & Schuster](../images/logo.jpg)
+![Logo: Simon & Schuster](images/logo.jpg)
 
 Simon & Schuster
 

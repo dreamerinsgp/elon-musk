@@ -2,7 +2,7 @@
 
 # 5 Escape Velocity Leaving South Africa, 1989
 
-![Image](../images/f0035-01.jpg)
+![Image](images/f0035-01.jpg)
 
 [*OceanofPDF.com*](https://oceanofpdf.com)
 

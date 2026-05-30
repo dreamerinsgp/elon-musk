@@ -2,15 +2,15 @@
 
 # 1 Adventurers
 
-![Image](../images/f0009-01.jpg)
+![Image](images/f0009-01.jpg)
 
 Winnifred and Joshua Haldeman
 
-![Image](../images/f0009-02.jpg)
+![Image](images/f0009-02.jpg)
 
 Errol, Maye, Elon, Tosca, and Kimbal Musk
 
-![Image](../images/f0009-03.jpg)
+![Image](images/f0009-03.jpg)
 
 Cora and Walter Musk
 

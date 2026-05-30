@@ -2,7 +2,7 @@
 
 # 33 Private Space SpaceX, 2009–2010
 
-![Image](../images/f0203-01.jpg)
+![Image](images/f0203-01.jpg)
 
 At Cape Canaveral with President Obama, 2010
 

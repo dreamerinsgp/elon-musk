@@ -2,7 +2,7 @@
 
 # 35 Marrying Talulah September 2010
 
-![Image](../images/f0213-01.jpg)
+![Image](images/f0213-01.jpg)
 
 With Talulah at the Kentucky Derby
 

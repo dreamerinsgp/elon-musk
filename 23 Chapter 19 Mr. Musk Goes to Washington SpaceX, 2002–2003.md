@@ -2,7 +2,7 @@
 
 # 19 Mr. Musk Goes to Washington SpaceX, 2002–2003
 
-![Image](../images/f0118-01.jpg)
+![Image](images/f0118-01.jpg)
 
 Gwynne Shotwell
 

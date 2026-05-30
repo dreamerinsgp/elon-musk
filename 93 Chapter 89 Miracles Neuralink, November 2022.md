@@ -2,7 +2,7 @@
 
 # 89 Miracles Neuralink, November 2022
 
-![Image](../images/f0561-01.jpg)
+![Image](images/f0561-01.jpg)
 
 A slide showing the goal and Jeremy Barenholtz
 

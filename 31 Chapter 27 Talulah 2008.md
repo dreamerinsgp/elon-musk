@@ -2,7 +2,7 @@
 
 # 27 Talulah 2008
 
-![Image](../images/f0172-01.jpg)
+![Image](images/f0172-01.jpg)
 
 With Talulah Riley in Hyde Park, London
 

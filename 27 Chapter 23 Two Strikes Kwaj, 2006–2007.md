@@ -2,11 +2,11 @@
 
 # 23 Two Strikes Kwaj, 2006–2007
 
-![Image](../images/f0149-01.jpg)
+![Image](images/f0149-01.jpg)
 
 Bülent Altan cooking goulash
 
-![Image](../images/f0149-02.jpg)
+![Image](images/f0149-02.jpg)
 
 Hans Koenigsmann, Chris Thompson, and Anne Chinnery on Kwajalein
 

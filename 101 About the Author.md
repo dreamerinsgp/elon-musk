@@ -34,7 +34,7 @@ Walter Isaacson has written biographies of Jennifer Doudna, Leonardo da Vinci, S
 
 [*OceanofPDF.com*](https://oceanofpdf.com)
 
-![Image](../images/backcover.jpg)
+![Image](images/backcover.jpg)
 
 [*OceanofPDF.com*](https://oceanofpdf.com)
 

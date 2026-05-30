@@ -2,7 +2,7 @@
 
 # 50 Shanghai Tesla, 2015–2019
 
-![Image](../images/f0312-01.jpg)
+![Image](images/f0312-01.jpg)
 
 With Robin Ren in Shanghai
 

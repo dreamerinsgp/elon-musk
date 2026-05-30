@@ -2,11 +2,11 @@
 
 # 80 Robotaxi Tesla, 2022
 
-![Image](../images/f0501-01.jpg)
+![Image](images/f0501-01.jpg)
 
 Omead Afshar, Musk, Franz von Holzhausen, Drew Baglino, Lars Moravy, and Zach Kirkhorn
 
-![Image](../images/f0501-02.jpg)
+![Image](images/f0501-02.jpg)
 
 A Robotaxi concept
 

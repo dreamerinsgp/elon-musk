@@ -2,11 +2,11 @@
 
 # 48 Fallout 2018
 
-![Image](../images/f0295-01.jpg)
+![Image](images/f0295-01.jpg)
 
 On the Joe Rogan show *(top)*; Kimbal *(bottom)*
 
-![Image](../images/f0295-02.jpg)
+![Image](images/f0295-02.jpg)
 
 On the Joe Rogan show *(top)*; Kimbal *(bottom)*
 

@@ -2,11 +2,11 @@
 
 # 72 Active Investor Twitter, January–April 2022
 
-![Image](../images/f0440-01.jpg)
+![Image](images/f0440-01.jpg)
 
 Parag Agrawal
 
-![Image](../images/f0440-02.jpg)
+![Image](images/f0440-02.jpg)
 
 Jack Dorsey
 

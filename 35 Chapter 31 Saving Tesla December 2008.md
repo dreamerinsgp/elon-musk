@@ -2,7 +2,7 @@
 
 # 31 Saving Tesla December 2008
 
-![Image](../images/f0190-01.jpg)
+![Image](images/f0190-01.jpg)
 
 An almost freakish love of risk: Braving a blindfolded knife-thrower at one of his birthday parties
 

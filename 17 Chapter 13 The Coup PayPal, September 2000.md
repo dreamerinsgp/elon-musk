@@ -2,15 +2,15 @@
 
 # 13 The Coup PayPal, September 2000
 
-![Image](../images/f0082-01.jpg)
+![Image](images/f0082-01.jpg)
 
 The PayPal mafia
 
-![Image](../images/f0082-02.jpg)
+![Image](images/f0082-02.jpg)
 
 Luke Nosek, Ken Howery, David Sacks, Peter Thiel, Keith Rope, Reid Hoffman, Max Levchin, Roelof Botha; Max Levchin
 
-![Image](../images/f0082-03.jpg)
+![Image](images/f0082-03.jpg)
 
 Michael Moritz
 
